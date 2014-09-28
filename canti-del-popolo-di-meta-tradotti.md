@@ -1,3 +1,21 @@
+Canti del popolo di Meta, tradotti da Roberto Reale
+===================================================
+
+
+CANTI
+-----
+
+# 17
+
+Figliola, che sei bella ma non balli:  
+attenta, ché hai uno sgarro nella gonna!  
+E se cerchi sotto, troverai una falla:  
+per turarla trenta rotoli di pelle,  
+di stoppa ne consumi dieci balle  
+e di pece non ti basta un bastimento.  
+Ma se tu la vuoi sanare questa falla  
+d'uopo è una botta del mio gran martello!
+
 # 43
 
 E mi chiamò un giorno una Massese,  

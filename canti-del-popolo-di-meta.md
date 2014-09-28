@@ -134,6 +134,61 @@ Li ragge de lu sole 'ntrattenite.
 Quann' a 'sta fenestella v'affacciate ,  
 Me ne tirate cu' la calamita.
 
+#10
+
+Bella figliola , nun t' arde lu core ,  
+Quanno la sera me siente passare ?  
+Allumma la cannela e ghiesce fore :  
+Dincill' a mamma toia ca vuò' filare.  
+Si màmmeta te dice qua' parola  
+Dincillo tu ca dinto nu' può' stare :  
+Ge sta ninnillo mio da cà fare ,  
+Tutta de fuoco me sent' allummare.
+
+# 11
+
+Càrcere fatt' a làmmi' e nun a trave ,  
+I' mescheniello dinto me ge trovo.  
+Càrcere fatta pe' l' uòmmene brave ,  
+Ge vanno dint' e pèrdeno li pprove.  
+Vene lu carceriere li cchiave,  
+E serr' 'a porta cu' lecchiett' e chiuove.  
+Misero me , si carcerato vavo ,  
+Chiamm' amic' e parient' e nu' ne trovo!
+
+# 12
+
+Ch' addore de garuòfene che sento!  
+'Mpiett' a nennella mia ge n' è 'na schianta.  
+Chiste nun zo' garuòfene nè niente ,  
+È 'u sciat' 'i nenna mia ch' addora tanto.  
+Si quaccheruno me la tene mente ,    
+Ge lu faccio pigliare l' uoglio santo.  
+E si màmmeta toia n' è cuntenta ,  
+Tu munacell' e i' mònaco santo.
+
+# 13
+
+Chi t' ha ditto ca n' aggio 'nnammurate ?  
+Sette ne tengo a lu cumanno mio.  
+Una la teng' a Massa e 'n' at' a Crape ,  
+'N' ata la teng' a la chiana de Vico,  
+'N' ata ne tengo 'ncopp' a Massaquana ,  
+'N' ata ne tengo 'ncopp' a Santu Vito ,  
+'N' ata me la teng' a lu mio lato :  
+A chella conto li ppatute mie.
+
+# 14
+
+Dummèneca matina de li Pparme  
+Pe' me nu' fosse fatto maie iuorno!  
+Iett' a la ghièsia pe' purtà' la parma ,  
+Me li bedette ciento sbirr' attuorno.  
+I' le dicette : N' aggio fatto danno ,  
+N' aggi' acciso nisciun' a 'sti cuntuorne.  
+Da Nàpule è benuta la cunnanna :  
+De stà' cu' nenna mia nott' e ghiuorno.
+
 # 15
 
 Faccia de nucepièrzeco sciuruto ,  

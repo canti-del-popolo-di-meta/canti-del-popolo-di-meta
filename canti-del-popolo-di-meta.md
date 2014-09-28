@@ -347,7 +347,7 @@ Quanno ge vai' a 'scire la matina ,
 I' 'ncuoll' a te me ge vorri' afferrare.  
 Tu me dicisse : làsseme , restina ,  
 La mess' è asciut' e nun me fai' arrivare.  
-- Tanno te lasso a te , nennella mia ,  
+&mdash; Tanno te lasso a te , nennella mia ,  
 Quanno m' he' 'itto che me tuorn' âmare.
 
 # 66

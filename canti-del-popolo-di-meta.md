@@ -173,7 +173,7 @@ Diceva paternuost' e miserere ,
 Comm' 'u sòlito mio soleva fare.  
 Scappa la lampa e rompe la lumera ,  
 I' stev' 'a sott' e l' ebbe da pavare.  
-Vi' quant' è granne la fortuna mea:  
+Vi' quant' è granne la fortura mea:  
 I' vaco pe' fà' buon' e faccio male.
 
 # 47

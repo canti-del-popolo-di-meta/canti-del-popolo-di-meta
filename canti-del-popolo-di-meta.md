@@ -671,3 +671,24 @@ Chi è 'stu piccerillo che venn' acqua?
 I' me voto cu' parol' accorte :  
 So' làcreme d' amor' e nun è acqua!
 
+# 68
+
+Vurria fare comme fa la quaglia ,  
+'Nterra s' apos' e li guste se piglia.  
+Ge va lu cacciator' a fà' la caccia ,  
+E po' dice a lu cane : Pigliatilla.  
+Vene lu cane e nu' porta la quaglia :  
+Lu cacciatore còllera se piglia.  
+Nun ge serve che faie lu saglia saglia ,  
+Quanto chiù 'ncoppa vaie chiù butte piglie.
+
+# 69
+
+Zi' munacella cu' 'stu manto pinto ,  
+Vaie dicenno ca te tu vuò' fà' santa ,  
+Mo ca tu si' arrivato a l' anno vinte :  
+Voglio lu maretiello , chist' è lu manto.  
+Me voglio fà 'na scala tutto vinche ,  
+Po' voglio scalïare 'stu cummento ,  
+Lu voglio scalïar 'a for' e dinto :  
+A do' è zi' munacella, ca n' 'a sento?

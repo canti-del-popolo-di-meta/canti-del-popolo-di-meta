@@ -425,6 +425,32 @@ Nu curtulluccio, lu ppane e lu ccaso.
 Sapisse che vuleva la massesa!  
 A l' ùtemo volea fà' la surrasa.
 
+# 44
+
+Nu iuorno me 'mmarcaie cu' nu turrese ,  
+Credenno d' arrecchire la mia casa.  
+Tanto ch' era nòbel' e curtese ,  
+Si era ronna ge deva nu vaso.  
+A Torre me facea lu pizz' a riso  
+E 'n Zardegna la còppua 'ncapa me 'ncasa.  
+Nun voglio navecare chiù turrise ;  
+Chiuttosto vogl' i' a fare lu vastaso :  
+Ge voglio prïà' Dio e santa Rosa:  
+Me fàceno turnà' priest' 'u paese.  
+Si 'stu viaggio durava 'n atu mese ,  
+Manco 'i ppelle ge purtav' â casa.
+
+# 45
+
+Nu iuorno me 'mparai caudararo ,  
+E chest' è la megli' arte che me trovo.  
+Comme ne iette pe' dint' a Lustrano ,  
+Li ccaudare vecchie li faccio nove.  
+Vene 'na ronna cu' a sartània 'mmano :  
+Siè masto mio , conciamìa bona.  
+I' ne vurria vuttare quanno maie :  
+Quanto chiù cerco, chiù pertòsere trovo.
+
 # 46
 
 Nu iuorno stevo cu' li mieie penziere ,  

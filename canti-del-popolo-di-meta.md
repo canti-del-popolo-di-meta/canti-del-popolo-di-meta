@@ -410,7 +410,7 @@ L' auciello nu' bola senza penne.
 Me voglio fare 'na scuppett' a miccia ,  
 Ge voglio ire quatto iuorn' a caccia.  
 Sott' a 'na ripa truvaie nu riccio ,  
-Le mEngo quatto bott' e nu' lu faccio.  
+Le mengo quatto bott' e nu' lu faccio.  
 Subetamente ge cagnaie lu miccio ,  
 La scuppetta me fice catenaccio.  
 I' nu' chiagno ch' aggio perdut' 'o riccio :  

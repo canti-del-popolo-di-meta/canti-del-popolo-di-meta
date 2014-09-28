@@ -619,7 +619,7 @@ Chess' è la iatta che sempe ge trase.
 # 54
 
 Sera passaie pe' dinto a nu vico ,  
-Vidde 'a fica càrreca de prune.  
+Vidde 'na fica càrreca de prune.  
 Stenno la mana pe' la scutuare :  
 Cadèvano percoche tanto l' una!  
 S' addona lu patrone da luntano :  

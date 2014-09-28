@@ -220,6 +220,39 @@ De pece ge ne vole nu vasciello.
 Si te la vuò' sanare chesta palla ,  
 Ge vo' 'na botta de lu mio martiello.
 
+# 18
+
+Figliola, dàtte vot' a 'sta ienesta :  
+A tiempo ca t' amav' i' era pazzo.  
+Màmmeta va agghiustenno parentezza  
+Tu nun zi' bona manco pe' vaiassa.  
+Si nun tiene crianz' i' te ne 'mmezzo ;  
+Si nun parle poco abbusche 'faccia.  
+Nun piglia tanta botte 'na galessa.  
+Quanta cièfere piglio int' a 'sta nassa.
+
+# 19
+
+Figliola , te petriene ca si' bella :  
+Nisciuna de 'sti luoche arresommiglie.  
+Te mettarria 'ncopp' a 'na rotella,  
+Tutta chiena de pòrev' e de palle.  
+Tiene la vocca de la parruccella ,  
+Tiene lu naso de lu pappavallo.  
+Si' scartellata comm' a bicchiarella  
+Si' tutta struppïat' e sempe parle!
+
+# 20
+
+Figliulo cu' 'sta capa 'ncarnatella ,  
+Dint' a 'stu luoco faie lu sagli' e scenne.  
+Gi haie mannato pe' mille zetelle ,  
+Nisciuna mamma te vò dà' la figlia.  
+N' haie fatte trìpet' e trepetelle!  
+Nun haie pututo sparà' 'stu mastrillo!  
+Chesto te dic' a te , figliulo bello :  
+Viecchio te fai' e nisciuno te piglia.
+
 # 28
 
 Iunne capille miei , iunne capille ,  

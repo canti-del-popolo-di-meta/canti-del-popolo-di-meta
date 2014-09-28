@@ -82,6 +82,37 @@ A do' l' he' fatta 'sta caccia riale?
 &mdash; L' aggio fatt' a li pporte de l'Avella ,  
 A do' la neve nun ze spegna maie.
 
+# 15
+
+Faccia de nucepièrzeco sciuruto ,  
+Pare che la lïata t' ha seccato ,  
+Me vien' appiero comm' a nu speruto ,  
+Comme nun ge stèssero chiù 'nnammurate.  
+Vaie dicenno che nu' m' he' vuluto ,  
+Pecchè nu' dice che t' aggio lassato?
+
+# 16
+
+Fenestelluzza tutta rentagliata ,  
+Comme la fronna de lu gesummino ,  
+La nott' apert' e lu iuorno serrata ,  
+Lu fai' apposta pe' dispietto mio.  
+Fenesta, si t' avess' a 'n' atu luoco ,  
+Centemìlia piezze te farria.  
+Fenesta, te puozz' àrdere de fuoco ,  
+Pecchè ge tiene 'nchius' a nenna mia.
+
+# 17
+
+Figliola, ca si' bell' e nun abballe ,  
+Ge tiene nu pertus' a la vunnella.  
+Vaie chiù sotto , ge truove 'na palla  
+Ge vanno trenta ròtue de pelle.  
+De stoppa ge ne vonno dece balle ,  
+De pece ge ne vole nu vasciello.  
+Si te la vuò' sanare chesta palla ,  
+Ge vo' 'na botta de lu mio martiello.
+
 # 57
 
 Si t' haie da 'nzurà', pigliala bella ,  

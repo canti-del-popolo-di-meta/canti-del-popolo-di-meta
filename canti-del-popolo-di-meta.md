@@ -1,3 +1,29 @@
+Canti del popolo di Meta, annotati e pubblicati da Luigi Molinaro del Chiaro
+============================================================================
+
+
+DEDICA
+------
+Al chiarissimo  
+Comm.re Giulio Minervini  
+letterato ed archeologo illustre  
+che  
+al profondo sapere  
+unisce  
+impareggiabile bontà di cuore  
+questa raccolta di canti popolari  
+in attestato di gratitudine  
+offre  
+L.M.D.C.
+
+
+AVVERTENZA
+----------
+Assai di buon grado son venuto nel divisamento di metter fuori questi pochi canti del popolo di Meta (Piano di Sorrento), perché mi va per l'animo la speranza che essi abbiano a riescire accetti e forse un cotal poco utili agli amatori degli studii dialettali. Come il lettore scorgerà di leggieri, in questi canti ribocca l'affetto e il sentimento; il verso è per lo più, scorrevole dolce, e non mancano qua e là pensieri nobili delicati, non disgiunti da una certa semplicità che li rende ancora più belli. Solo, ad agevolarne l'intelligenza letterale a coloro che son poco pratici dei vernacoli meridionali , ho apposte , quando lo richiedeva il bisogno, alquante note dichiarative ai canti medesimi.
+
+E qui intendo pubblicamente di rendere quelle grazie che so e posso maggiori al mio carissimo parente Ernesto Palumbo che gentilmente me li donava , come del pari mi professo tenutissimo all'amico Emiddio Martini che ne curò la raccolta.
+
+
 # 57
 
 Si t' haie da 'nzurà', pigliala bella ,  

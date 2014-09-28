@@ -165,6 +165,59 @@ De pece ge ne vole nu vasciello.
 Si te la vuò' sanare chesta palla ,  
 Ge vo' 'na botta de lu mio martiello.
 
+# 28
+
+Iunne capille miei , iunne capille ,  
+Pure quanno cammine parite bella.  
+Facite muri' l' amant' a mill' a mille ,  
+Po' li vai' a sanà' cu' st' uocchie belle.  
+Dint' a 'stu palazzo ge ne stanno mille ;  
+Sulo nennella mia g' è la chiù bella.
+
+# 29
+
+La bella mia sta malat' a letto ,  
+Tene la mala pasca ca s' 'a vatte.  
+Se l' ha mangiate doie ialline cotte ,  
+S' ha rusecate l' ossa comm' a ghiatta ,  
+Se l' ha mangiate di' cuopp' 'e cunfiette ,  
+Ge l' ha asseccate di' puzzille d' acqua.  
+Tu te crerive 'i mi fà' rispietto :  
+I' 'n at' amante tengo e tu ge schiatte.
+
+# 30
+
+La tòrtora si perde la cumpagna ,  
+Tuttu lu iuorno sta malancunosa ;  
+Po' trova l' acqua fresca e se gi abbagna ,  
+E se lu beve tutta 'ntruvulosa.  
+Po' se ne va a nu pizzo de muntagna ,  
+Là se li chiagne li malanne suoie.  
+Cussì è la nenna quanno se scumpagna ,  
+Perde li guste , li spass' e li suone.  
+
+# 31
+
+Lu spasso de lu ventre è lu ppane ,  
+Lu spasso de lu vino so' i prummune ,  
+Lu spasso de lu lèper' è la tana ,  
+Lu spasso de li sierpe so' i ceppune ,  
+Lu spasso de li maste so' i sculare ,  
+Lu spasso de li libre so' i rutture.  
+Si vuò' sapere lu meglio spassare :  
+Quanno me spasso nu poco cu' buie.
+
+# 32
+
+Mamma, che de fìgliet' haie paura ,  
+Voglio vedere si la saie guardare.  
+Carrie pret' e fràveche li mmura ,  
+'Mmocc' a la porta toia 'na torra faie ;  
+Po' la 'nzierre cau sette mascature ,  
+Comm' a 'na casciulella de denare.  
+Si qua' ghiuorno me tenta la fortura  
+Scasso li pporte e la veng' a truvare.
+
 # 46
 
 Nu iuorno stevo cu' li mieie penziere ,  

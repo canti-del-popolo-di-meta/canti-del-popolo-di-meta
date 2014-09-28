@@ -253,6 +253,50 @@ Nun haie pututo sparà' 'stu mastrillo!
 Chesto te dic' a te , figliulo bello :  
 Viecchio te fai' e nisciuno te piglia.
 
+# 21
+
+Galera cu' 'sti nuove peramiente,  
+Staie scuverta ciento migli' a mare.  
+Li bbele d' or' e li rimme d' argiento ,  
+Quanto chiù puorte tu chiù bella pare.  
+Galera , si gi ancappe sotto viento ,  
+Li bbele abbascio te facci' acalare.  
+N' aggio paura d' acqua nè de viento :  
+Tengo nennillo mio marenaro.
+
+# 22
+
+Ge volimm' amar' e la gente nu' bonno :  
+Vi' che ne vonno 'sta gente da mene.  
+Vonno che de 'sti panne me ne spoglio ,  
+Che nu' pozzo fà' l' ammore 'n aterno.  
+Si ge venesse la rigina de Spagna  
+E me dicess' : Amore, nun amà' chiù donna,  
+Cu' 'na spata me passa vanna vanna :  
+Nu' 'nganno nenna mia pe' 'n' ata donna.
+
+# 23
+
+I' g' era peccerillo de dui' anne.  
+Mamma me disse : Nun amare donne ,  
+I' la 'ntenniett' a nzino a li vint' anne ,  
+A li vintuno po' amaie di' ronne.  
+Ge n' amaie una ch' era 'na tiranna ;  
+L' ata me fice pèrdere lu suonno.  
+Avesso 'ntiso chella cara mamma ,  
+Nun gi avarria perzo lu mio suonno.
+
+# 24
+
+Iett' a la chianca pe' m' abbuscà' 'n uosso ,  
+Pe' me ge fare 'na menesta 'rassa ;  
+Ge truvaie nu cane tanto 'ruosso ,  
+Me corre 'ncuollo comm' a Satanasso.  
+Iette chiù 'nnante e ge truvaie nu fuosso ,  
+E cu' lu pede ve iette da vasso.  
+Nu' chiagno ca so' ghiut' int' a lu fuosso ;  
+Chiagno nennella mia ca mo me lassa.
+
 # 28
 
 Iunne capille miei , iunne capille ,  

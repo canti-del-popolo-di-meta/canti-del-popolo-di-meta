@@ -165,6 +165,61 @@ De pece ge ne vole nu vasciello.
 Si te la vuò' sanare chesta palla ,  
 Ge vo' 'na botta de lu mio martiello.
 
+# 46
+
+Nu iuorno stevo cu' li mieie penziere ,  
+E dinto san Francisco m' arorava.  
+Diceva paternuost' e miserere ,  
+Comm' 'u sòlito mio soleva fare.  
+Scappa la lampa e rompe la lumera ,  
+I' stev' 'a sott' e l' ebbe da pavare.  
+Vi' quant' è granne la fortuna mea:  
+I' vaco pe' fà' buon' e faccio male.
+
+# 47
+
+Nun aggio comme fà' pe' te parlare :  
+Vestire me ge voglio cappuccino.  
+'Mmocc' a la porta veng' a tuzzuare :  
+Famme la caretà, nennella mia.  
+Chella me disse : n' aggio che te dare ,  
+Aggio fenuto lu ppan' e lu vino ,  
+Lu lietto è fatto, si te vuò' cuccare.  
+&mdash; Chesto ieva truvanno, nenna mia.
+
+# 48
+
+Nun ze pozza palazzo fravecare ,  
+Si n' accummenza da li pperamenta ;  
+Nun ze pozza la terra sgariare ,  
+Si nun ge stanno li sett' alimente ;  
+Nun ze pozz' a la ghièsia prerecare ,  
+Si nun ge sta nu pòpolo d' aggente ;  
+A lietto frisco nun te ì' a cuccare ,  
+Si nun ge sta 'na nennella valente.
+
+# 49
+
+O mamma, mamma, Francischiello voglio :  
+Francischiello vogli' e Francischiello me piglio.  
+Quanno iamm' a la ghièsia a dire : voglio ,  
+Tutte dui' a 'na mamma parimmo figlie.  
+lss' è bellillo e i' so' dellicata ,  
+Simmo passate pe' 'n' accia de seta ,  
+I' pe' dispietto me gi 'o mecc' a lato :  
+Chi nun gi 'o pò vedè' che schiatt' e crepa.
+
+# 50
+
+Palazziello de fierro ben guarnuto ,  
+Vicino nun ge ponn' 'e ccannunate.  
+Ge lu vurria fare nu sternuto.  
+'Nterra lu palazziell' è sgarrupato.  
+La gente da dinto chiàmmano aiuto :  
+Chi è lu giuveniello tant' armato?  
+Facite festa , che l' aggio vinciuto  
+'Sta nenna cu' seciento 'nnammurate.
+
 # 57
 
 Si t' haie da 'nzurà', pigliala bella ,  

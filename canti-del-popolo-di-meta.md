@@ -306,6 +306,61 @@ Comm' a 'na casciulella de denare.
 Si qua' ghiuorno me tenta la fortura  
 Scasso li pporte e la veng' a truvare.
 
+# 33
+
+Mamm', 'u scurpione m' ha muzzecato :  
+E m' have fatta 'na 'rossa feruta.  
+Sapisse lu relore che m' ha dato ,  
+Senza cacciare sango m' ha feruta.  
+A du lu 'nciarmatore ge so' stato ;  
+Nisciuna mericina gi ha pututo.  
+Sentite la risposta ca m' ha dato :  
+Fatte sanare da chi t' ha feruta.
+
+# 34
+
+Maretatella mia , maretatella ,  
+Chi te l' ha dato 'stu brutto marito ?  
+E maritet' è brutt' e tu si' bella ,  
+Purtàtel' a cagnar' a lu cannito.  
+A lu cannito ge stanno li ccanne ,  
+A li ggalere l' àrev' e li 'ntenne.  
+Si t' haie da maretà' , fatte li panne :  
+L' auciello nu' bola senza penne.
+
+# 35
+
+Me voglio fare 'na scuppett' a miccia ,  
+Ge voglio ire quatto iuorn' a caccia.  
+Sott' a 'na ripa truvaie nu riccio ,  
+Le mEngo quatto bott' e nu' lu faccio.  
+Subetamente ge cagnaie lu miccio ,  
+La scuppetta me fice catenaccio.  
+I' nu' chiagno ch' aggio perdut' 'o riccio :  
+Chiagno nennella mia ca nun z' affaccia.
+
+# 36
+
+Mìsero me! so' pòvero marvizzo ,  
+Tengo lu pizzo abbampato de fuoco.  
+Vene lu cacciator' e m' adderizza ,  
+'Ncopp' a 'sta vita mia fa fest' e ghiuoco.  
+Po' m' have 'mmane e tutto me spellizza ,  
+Po' me ge mette a chill' ardente fuoco.  
+Cussì è la ronna quanno se 'ncrapizza ,  
+Me port' a l' uort' a cògliere viole.
+
+# 37
+
+Mìsero me! so' povero surdato ,  
+La mia lebertà l' aggio perduta.  
+Aggio mangiato pane de furzato ,  
+E acqua cu li vierm' aggio bevuta.  
+Mamm' e patre m' hann' abbannunato ,  
+Li megli amice mie m' hanno traruto.  
+Si lu cielo me scappa da surdato ,  
+Voglio fà' pace cu chi m'ha traruto.
+
 # 38
 
 Musso d' argiento mio , musso d' argiento.  

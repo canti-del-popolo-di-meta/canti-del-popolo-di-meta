@@ -337,6 +337,72 @@ Chi è lu giuveniello tant' armato?
 Facite festa , che l' aggio vinciuto  
 'Sta nenna cu' seciento 'nnammurate.
 
+# 51
+
+Rusella, che nascist' a lu risierto ,  
+Maie pe' me aracquata ge foste.  
+Nu' me fa ire pe' lu munno spierto ,  
+Comm' a la nave che ge va a lu puorto.  
+La nave , quanno perde lu trinchetto ,  
+Subetamente va truvanno puorto.  
+I' a li stràzie tuoie nu' sto suggetto :  
+Si sto 'mbassa fertura , nun zo' muorto!
+
+# 52
+
+Se ne scenne lu sole e se fa notte ,  
+Chi me vo' bene stasera nu' vevo.  
+Lu surore me vene de la morte ,  
+Penzo che nott' è fatt' e nu' la vevo.  
+'Mmocc' a la porta lasso la risposta ;  
+Fenestella che nu' luce cannela ,  
+A tutte ve ge lass' 'a bona notte :  
+Pe' me nu' mancarrà la bona sera.
+
+# 53
+
+Sera ge iette e lu marito g' era ,  
+Ge la faciette la mala nuttata :  
+Ie ge mettiette sott' a la lettera ;  
+Comm' a lu ragno ieva pe' la casa.  
+Ricette lu marit' a la mugliera :  
+Ched' è tanto rummore pe' la casa?  
+Ruorme , marito mio , te venga bene :  
+Chess' è la iatta che sempe ge trase.
+
+# 54
+
+Sera passaie pe' dinto a nu vico ,  
+Vidde 'a fica càrreca de prune.  
+Stenno la mana pe' la scutuare :  
+Cadèvano percoche tanto l' una!  
+S' addona lu patrone da luntano :  
+Sta attiento 'un me scarpise 'sti mellune.  
+I' cu' la scusa de li mmulignane ,  
+Cuglieva nucepèrzech' e mellune.
+
+# 55
+
+Sera passai' e tu , bella , durmive.  
+Tutto 'stu giardeniello cammennaie :  
+Dinto ge steva 'na fica ientile ,  
+I' pe' crianza mia nu' la tuccaie.  
+Po' te faciette 'n' ata curtesia ,  
+Stive scuvert' e i 'te cummigliaie.  
+'E una cosa ge restaie currivo :  
+Fuoco allummat' e nu' me scaglientaie!
+
+# 56
+
+Sia beneritto chi fece lu munno ,  
+Chi ce lu fice lu sapette fare.  
+Face primma la nott' e po' lu iuorno ,  
+E lu sapette crèscer' e mancare.  
+Po' ge fice lu mare tuorno tuorno ,  
+Ge fice li vascielle pe' navegare :  
+E po' te fice a te , penta palomma ,  
+E te ge fice pe' me 'ncuïtare.
+
 # 57
 
 Si t' haie da 'nzurà', pigliala bella ,  

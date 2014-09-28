@@ -218,6 +218,70 @@ Comm' a 'na casciulella de denare.
 Si qua' ghiuorno me tenta la fortura  
 Scasso li pporte e la veng' a truvare.
 
+# 38
+
+Musso d' argiento mio , musso d' argiento.  
+Si' piccerella e tiene dui' amante ,  
+Un' è de oro e 'n auto d' argiento ,  
+Dimme , figliola , a chi vuò' bene tanto?  
+I' chillo d' oro nu' lu stimo niente ;  
+Chillo d' argient' è lu pròpri' amante.  
+Ma si pe' sciorta se càgnen' i viente ,  
+Voglio chiù ben' a buie ch' a 'n at' amante.
+
+# 39
+
+'Na nenna bella quanno se marita ,  
+Se crede ca lu pàlli' ha pigliato.  
+Quatto iuorne ch' è stata c' 'u marito  
+Deventa comm' a scròccua spennata :  
+E po' se vota 'nfacci' a lu marito :  
+Uh nu' m' avesse maie maretata!  
+Meglio m' esse restata vecchia zita ,  
+Nun patarria 'sti ppene che pate.
+
+# 40
+
+Nàpule bell' e Surriento cevile ,  
+Surriento me convene d' avantare.  
+A Surriento ge sta l' ària suttile ;  
+Chi sta malat' a Surriento se sana.  
+Si sta malata tanto bella mia ,  
+I' ge la porc' a Surrient' a sanare.
+
+# 41
+
+Nàpule bello ne vurria li ccase ,  
+E da Salierno la farra e lu riso ;  
+Castiellammare la tela che trase ,  
+E 'na nenna ca cose li ccammise ;  
+D' Arola ne vurria li ccerase ,  
+Da Surriento li ffiche paravise :  
+Da 'ssu mussillo ne vurria nu vaso :  
+Moro cuntent' e vavo 'mparaviso.
+
+# 42
+
+Nenna che stai' affacciat' a 'sta fenesta,  
+Famme 'na 'ràzia e nun te ne trasire.  
+Càlame nu capillo da 'sta trezza ,  
+Mòllal' abbascio ca voglio saglire.  
+Quanno so' arrivat' a 'sta fenesta ,  
+Me piglie 'mbraccia e me puort' a dormire ;  
+Quanno simm' arrivat' int' a lu lietto ,  
+Mannai' a i vische de chi vo' durmire!
+
+# 43
+
+Nu iuorno me chiammaie 'na massesa ,  
+Che fosse iuto nu zumpo a la casa.  
+I' me lassaie cu' carrera tesa ;  
+Essa c' 'a port' aperta dice : trase.  
+M' apparicchiaie 'na tàvola mesa ,  
+Nu curtulluccio, lu ppane e lu ccaso.  
+Sapisse che vuleva la massesa!  
+A l' ùtemo volea fà' la surrasa.
+
 # 46
 
 Nu iuorno stevo cu' li mieie penziere ,  

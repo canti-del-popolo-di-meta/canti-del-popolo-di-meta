@@ -24,6 +24,64 @@ Assai di buon grado son venuto nel divisamento di metter fuori questi pochi cant
 E qui intendo pubblicamente di rendere quelle grazie che so e posso maggiori al mio carissimo parente Ernesto Palumbo che gentilmente me li donava , come del pari mi professo tenutissimo all'amico Emiddio Martini che ne curò la raccolta.
 
 
+CANZUNE
+-------
+
+# 1
+
+'A bella mia se chiamma Matalena  
+M' ha fatto penïare 'n anno sano,  
+Cu' na mana me chiamm' e dice : viene ;  
+Cu 'n' àuta po' da me se n' alluntana.  
+Lèrat' 'a fantasia ca 'ncapa tiene ,  
+Duna 'stu cor' a chi prummiso l'haie .  
+Si l' haie prummis' a me, tu tiene tiene ;  
+Si l' haie prummis' a 'n ato, nu' mancare.
+
+# 2
+
+&mdash; Aggio saputo ca la morta vene :  
+Tutte li bbelle se li vo' pigliare.  
+Tu che si' bella mièttete 'mpenziere :  
+Chisti bbellizz' a chi li buò' lassare?  
+Tu lassarill' a chi te ge vo' bene ,  
+Si è pe' me, i' nun te voglio male.  
+&mdash; Chiù priest' 'i lassari' a lu turreno ,  
+Pe' n' 'i lassar' a te, core de cane.
+
+# 3
+
+Aggio saputo ca si' fatta santa ,  
+A la ghièsia ge vaie spissamente.  
+'Sta curunella che purtat' avante ,  
+Ge la purtate pe' 'ngannà' li ggente.  
+M' haie 'ngannat' a me, pòver' amante ,  
+Cussì te pòzzano ingannà' li tuoie parente.  
+Chesto te dic' a te, da oggi avante ,  
+Troppa folla ge truov' a lu cunvento.
+
+# 4
+
+Aizo l' uocchie 'ncielo e vevo 'na stella.  
+Potènzia d'amore! quanto si' bella!  
+Chiamm' a Ros' e risponne 'Ngiolella :  
+Dimme, figliola, qua' te pare bella ?  
+'A quanno ca ge vavo appier' a chella :  
+Me ge vo' fà' murì' la cana bella.  
+Chella se pò chiammà' la vera stella.  
+Chella che porta 'mpietto di' ruselle.
+
+# 5
+
+A l' acqu' a l' acqua de li ffuntanelle ,  
+A do' ge vanno li ddonn' a lavare ,  
+Là me la voglio scègliere la meglia ,  
+E semp' appiero la voglio purtare.  
+Tutte me diciarranno : Quant' è bella!  
+A do' l' he' fatta 'sta caccia riale?  
+&mdash; L' aggio fatt' a li pporte de l'Avella ,  
+A do' la neve nun ze spegna maie.
+
 # 57
 
 Si t' haie da 'nzurà', pigliala bella ,  

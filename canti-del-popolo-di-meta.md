@@ -178,3 +178,37 @@ I' voglio prïà Di' e tutte li sante.
 Che me levàsser' 'a 'stu fuoc' ardente.  
 Si 'st' uocchie mie schiòppen' a lu chianto,  
 Ge vonno maccator' ogne momento.
+
+# 65
+
+Vurrì' addeventare 'na restina.  
+'Mmocc' a la porta toia fà' na separa.  
+Quanno ge vai' a 'scire la matina ,  
+I' 'ncuoll' a te me ge vorri' afferrare.  
+Tu me dicisse : làsseme , restina ,  
+La mess' è asciut' e nun me fai' arrivare.  
+- Tanno te lasso a te , nennella mia ,  
+Quanno m' he' 'itto che me tuorn' âmare.
+
+# 66
+
+Vurrì' addeventare nu muschillo ,  
+Me ne iarria 'mbracci' a nenna bella.  
+Me ne vurria zucare lu sanguillo ,  
+Comme 'na vespa l' uva muscarella.  
+Cielo ! quant' è doce lu sanguillo :  
+Nu' me ne partarria pe' 'n aterno.  
+Dint' a 'stu luogo ge ne stanno mille :  
+Tu sol' a l' uocchie mie si' la chiù bella.
+
+# 67
+
+Vurrei addeventare nu picciuòttuo ,  
+Cu' 'na langella 'ncuollo vennenn' acqua.  
+Me ne iarria pe' 'sti palazzuòttue :  
+Belle fèmmene mie , chi vo' acqua?  
+Se vota 'na figliola da là 'ncoppa :  
+Chi è 'stu piccerillo che venn' acqua?   
+I' me voto cu' parol' accorte :  
+So' làcreme d' amor' e nun è acqua!
+

@@ -2,7 +2,8 @@ Canti del popolo di Meta, annotati e pubblicati da Luigi Molinaro del Chiaro
 ============================================================================
 
 
-NAPOLI, Enrico Detken &mdash; Editore  
+NAPOLI  
+Enrico Detken &mdash; Editore  
 Piazza del Plebiscito  
 1879
 

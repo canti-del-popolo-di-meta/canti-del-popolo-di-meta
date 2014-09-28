@@ -638,6 +638,28 @@ Che me levàsser' 'a 'stu fuoc' ardente.
 Si 'st' uocchie mie schiòppen' a lu chianto,  
 Ge vonno maccator' ogne momento.
 
+# 63
+
+Ve manno cientomìlia bone sere ,  
+Ve ge le mann' a la napulitana.  
+Tu scinn' e miette l' uogli' a li ccannele ,  
+Che spassà' ge vulimino fin' a dimane.  
+Si pe' sciorta lu suonno te vene ,  
+Comme te vene t' 'u fai' a passare.  
+Si mamma toia me volesse bene ,  
+Cu' buie me lassarria fin' a dimane.
+
+# 64
+
+Vì' che faciette dommèneca matina ;  
+Me ne iett' a mangiar' a Posetano ;  
+Me mangiale nu puorco e 'na gallina ,  
+Nu pucuriello cu' tutta la lana ;  
+De maccarune nn spurtiello chino ,  
+De palatelle na 'nfurnata sana.  
+Doppo 'stu ventre mio nun era chino ,  
+Menava tuocco comm' a 'na campana.
+
 # 65
 
 Vurrì' addeventare 'na restina.  

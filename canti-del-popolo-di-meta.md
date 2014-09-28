@@ -88,6 +88,52 @@ A do' l' he' fatta 'sta caccia riale?
 &mdash; L' aggio fatt' a li pporte de l'Avella ,  
 A do' la neve nun ze spegna maie.
 
+# 6
+
+Amava 'na donna , se chiammav' Agnese ,  
+'N' ata n' amav' e se chiammava Rosa ,  
+'N' ata n' amav' e se chiammava Teresa ;  
+Sulo Teresa me dava quaccosa.  
+Corro nu iuorno cu' carrera tesa  
+Pe' vedè' 'st' auciello a do' s' aposa ;  
+Iette pe' dà' nu vas' a 'sta Teresa ,  
+E 'ncuollo me currett' Agnese e Rosa.
+
+# 7
+
+'A primma vota che me cunfessaie ,  
+Me cunfessai' a nu prericatore.  
+La primma cosa che m' addimannaie ,  
+Me ge lu disse : Figlio , faie l' ammore?  
+I' ge disse : Patre , tu che ne saie?  
+&mdash; I' me ne vavo da lu 'ntenzione.  
+La penitènzi' a te te voglio dare :  
+Spisse va vance e pòrtece chiù amore.
+
+# 8
+
+Arevo piccerillo te piantaie  
+E t' aracquaie cu' lu mio surore.  
+Vene nu vient' e ne vuttaie nu rammo ,  
+La verde fronna tramutaie culore ;  
+Lu fruttu roce se ge fice amaro ,  
+A do' è ghiuto lu rorge sapore ?  
+Viènece, mort', e tròvece riparo ,  
+Mo che la bella mi' ha cagnat' amore.
+
+# 9
+
+Bella che stat' a 'st' àsteco schianato ,  
+'Sti bionne capelluzze v' asciuglite.  
+Int' a 'na còncua r' acqua li llavate.  
+Chiù bionne ca n' è l' oro li ffacite.  
+Quann' a 'sta spatelluzza li vvutate ,  
+Chiù ghianca e russulella ve facite.  
+Po' li spalluzz' a lu sole vutate ,  
+Li ragge de lu sole 'ntrattenite.  
+Quann' a 'sta fenestella v'affacciate ,  
+Me ne tirate cu' la calamita.
+
 # 15
 
 Faccia de nucepièrzeco sciuruto ,  

@@ -114,3 +114,15 @@ Parliamo franco, non tergiversiamo.
 Io coi denari ho dalla mia gli amici.  
 Tu te ne vai con tua figlia baciata:  
 io me ne vado contento e felice.
+
+# 68
+
+Potessi fare come fa la quaglia:  
+si posa al suolo e si piglia i suoi gusti.  
+Il cacciatore ci va a farle la caccia  
+e dice al cane: — Tu prendila, forza!  
+Torna il cane al padrone, ma... senza quaglia:  
+e il cacciatore collera si piglia!  
+Non serve far tutto questo sagli sagli:  
+quanto più tu t’innalzi, più botte pigli.
+

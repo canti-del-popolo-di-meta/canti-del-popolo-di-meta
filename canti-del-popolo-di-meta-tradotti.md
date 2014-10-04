@@ -22,6 +22,17 @@ e di pece non ti basta un bastimento.
 Ma se tu la vuoi sanare questa falla  
 d'uopo è una botta del mio gran martello!
 
+# 19
+
+Figliola, ti lusinghi d’esser bella...  
+che in beltà nessuna ti è compagna.  
+A berlina io ti terrei su un rotella  
+tutta piena di polvere e di palle.  
+La bocca tieni della cinciarella  
+il naso uguale uguale a un pappagallo.  
+Più còncava pure d’una vecchierella  
+più storta d’una storpia e ancora parli!
+
 # 43
 
 E mi chiamò un giorno una Massese,  

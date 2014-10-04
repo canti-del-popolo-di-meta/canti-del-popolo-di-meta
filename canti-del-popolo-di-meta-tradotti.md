@@ -11,6 +11,17 @@ quanto di disumano in Grecia
 CANTI
 -----
 
+# 12
+
+Che odore di garofani che sento,  
+in petto a nenna mia ce n’è una schianta!  
+Questi non sono né garofani, né niente:  
+è respiro di nenna mia che odora tanto!  
+Se qualcuno me la guarda con la voglia  
+glie lo faccio pigliare l’olio santo!  
+E se mamma tua di noi non è contenta  
+tu ti fai monacella e io monaco santo.
+
 # 17
 
 Figliola, che sei bella ma non balli:  

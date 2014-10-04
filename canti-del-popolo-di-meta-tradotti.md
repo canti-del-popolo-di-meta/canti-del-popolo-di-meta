@@ -44,6 +44,17 @@ un coltelluccio, il pane ed il cacio.
 Ma sapeste alla fine la Massese: nel piatto  
 non vuol lasciarci proprio niente!
 
+# 47
+
+Ma come faccio per poterti parlare?  
+Mi voglio vestire da pio cappuccino  
+e alla tua porta poi vengo a suonare:  
+— Fammi la carità, figliola mia.  
+E lei mi dice: — Non ho che darti.  
+Mi son finiti il pane ed il vino.  
+Ma… c’è il letto fatto, se ti vuoi coricare.  
+— Io altro non cercavo, nenna mia!
+
 # 49
 
 O mamma, mamma!  

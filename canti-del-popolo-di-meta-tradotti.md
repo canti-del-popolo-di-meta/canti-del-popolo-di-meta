@@ -55,6 +55,18 @@ Mi son finiti il pane ed il vino.
 Ma… c’è il letto fatto, se ti vuoi coricare.  
 — Io altro non cercavo, nenna mia!
 
+# 48
+
+Palazzo nuovo non si può fabbricare  
+se non s’inizia dalle fondamenta.  
+E chi saprebbe arare la terra  
+se gli vengon meno i sette alimenti?  
+Alla chiesa, poi, come predicare  
+se manca il gran concorso della gente?  
+In letto fresco non ti ci coricare:  
+a meno che...  
+non ti ci trovi una nenna valente!
+
 # 49
 
 O mamma, mamma!  

@@ -145,6 +145,17 @@ glie lo faccio pigliare l’olio santo!
 E se mamma tua di noi non è contenta  
 tu ti fai monacella e io monaco santo.
 
+# 13
+
+Chi è venuto a dirti che non tengo innamorate?  
+Sette ne tengo, pronte al mio comando.  
+Una la tengo a Massa e un’altra a Capri  
+un’altra alla piana di Vico  
+un’altra ancora sopra Massaquano  
+un’altra sta sopra Santo Vito  
+e un’altra me la tengo qui vicino:  
+a questa confido le pene mie d’amore.
+
 # 14
 
 Domenica mattina delle Palme  
@@ -328,6 +339,15 @@ Poi si rigira in faccia al marito:
 che non mi fossi giammai maritata!  
 Meglio assai restare vecchia zita:  
 non patirei le pene che mi date.
+
+# 40
+
+Napoli bella e Sorrento civile;  
+Sorrento più mi giova di vantare.  
+A Sorrento c’è l’aria gentile;  
+chi sta malato là si può sanare.  
+Se sta malata un poco la mia bella  
+io a Sorrento ce la porto per guarire.
 
 # 41
 

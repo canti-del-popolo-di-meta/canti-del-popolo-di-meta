@@ -328,6 +328,17 @@ s’è prosciugate due sorgenti d’acqua.
 Ti lusingavi di farmi dispetto:  
 io un’altra amante tengo e tu ci schiatti.
 
+# 31
+
+Il piacere del ventre: il pane.  
+Il piacere del vino: i polmoni.  
+Il piacere della lepre: la tana.  
+Il piacere delle serpi: i cepponi.  
+Il piacere dei maestri: i scolari.  
+Il piacere dei libri: i dottori.  
+Sei vuoi sapere il meglio piacere,  
+quando mi prendo piacere con voi.
+
 # 32
 
 Mamma, che di tua figlia hai paura,  

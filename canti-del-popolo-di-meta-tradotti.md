@@ -561,7 +561,7 @@ Io per dispetto me lo tengo a fianco
 e chi non ce lo può vedere,  
 che lo strazi l’invidia.
 
-# 51
+# 50
 
 Palazzo amato, di ferro, ben guarnito,  
 che non ci posson nulla cannonate.  

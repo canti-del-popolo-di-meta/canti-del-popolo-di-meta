@@ -13,13 +13,13 @@ CANTI
 
 # 8
 
-Albero pargoletto ti piantai
-ti innaffiai con il mio sudore.
-Il vento viene e ne strappa un ramo
-la fronda verde mutò di colore.
-Il frutto dolce mi si fece amaro:
-dov’è perduto quel dolce sapore?
-Vieni qui, morte, trovaci riparo,
+Albero pargoletto ti piantai  
+ti innaffiai con il mio sudore.  
+Il vento viene e ne strappa un ramo  
+la fronda verde mutò di colore.  
+Il frutto dolce mi si fece amaro:  
+dov’è perduto quel dolce sapore?  
+Vieni qui, morte, trovaci riparo,  
 tanto la bella mia ha cambiato amore.
 
 # 12
@@ -35,13 +35,13 @@ tu ti fai monacella e io monaco santo.
 
 # 16
 
-Finestrella mia, intarsiata tutta
-come fronda di gelsomino.
-La notte stai aperta e il giorno serrata:
-lo fai apposta per tormento mio.
-Finestra, se io ti avessi in altro luogo
-in centomila schegge ti farei.
-Finestra, che tu possa ardere nel fuoco
+Finestrella mia, intarsiata tutta  
+come fronda di gelsomino.  
+La notte stai aperta e il giorno serrata:  
+lo fai apposta per tormento mio.  
+Finestra, se io ti avessi in altro luogo  
+in centomila schegge ti farei.  
+Finestra, che tu possa ardere nel fuoco  
 perché ci tieni chiusa a nenna mia.
 
 # 17
@@ -69,30 +69,30 @@ più storta d’una storpia e ancora parli!
 
 # 25
 
-Andai a pescare al più piccolo mare
-credendo ch’ero il solo pescatore.
-Là ci trovai mille e mille marinai
-che non bastava il mare maggiore.
-Io voglio abbandonarlo il mio mestiere,
-non voglio mangiar pesce con sudore.
-Non voglio che si dica, oggi o domani,
+Andai a pescare al più piccolo mare  
+credendo ch’ero il solo pescatore.  
+Là ci trovai mille e mille marinai  
+che non bastava il mare maggiore.  
+Io voglio abbandonarlo il mio mestiere,  
+non voglio mangiar pesce con sudore.  
+Non voglio che si dica, oggi o domani,  
 «passero vecchio in gabbia caduto».
 
 # 42
 
-Nenna, che t’affacci
-da questa finestra:
-fammi grazia,
-non nasconderti.
-Ma sciogliti
-un capello dalle trecce.
-Lascialo scendere
-ché voglio salire.
-E quando sarò arrivato
-alla tua finestra
-prendimi in braccio
-e portami a dormire.
-Però quando saremo nel tuo letto
+Nenna, che t’affacci  
+da questa finestra:  
+fammi grazia,  
+non nasconderti.  
+Ma sciogliti  
+un capello dalle trecce.  
+Lascialo scendere  
+ché voglio salire.  
+E quando sarò arrivato  
+alla tua finestra  
+prendimi in braccio  
+e portami a dormire.  
+Però quando saremo nel tuo letto  
 sia dannato chi ci vuol dormire!
 
 # 43

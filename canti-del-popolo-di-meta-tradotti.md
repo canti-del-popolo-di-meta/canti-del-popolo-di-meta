@@ -263,6 +263,30 @@ Dall’inciarmatore sì, ci sono andata.
 Medicine? Nessuna ci ha potuto.  
 Sentite la risposta che mi ha data:  
 fatti sanare da chi ti ci ha ferita.
+
+# 34
+
+Maritatella mia, maritatella,  
+chi te l’ha datto quel brutto marito?  
+E tuo marito è brutto e tu sei bella:  
+su, vattelo a cambiare giù al canneto.  
+Nel canneto ci stanno le canne  
+sulle galere gli alberi e le antenne:  
+se t’hai da maritare, fatti il corredo  
+ché l’uccello non vola senza penne.
+
+
+# 38
+
+Muso d’argento mio, musillo ‘e argiento,  
+sei piccerella e già tieni due amanti.  
+Il primo è d’oro e il secondo d’argento.  
+Ma tu dimmelo, nenna: a chi vuoi bene?  
+— Io a quello d’oro non lo stimo niente,  
+quello d’argento solo è il vero amante.  
+E se per sorte si cambieranno i venti  
+voglio più bene a voi che a un altro amante.
+
 # 39
 
 La bella nenna quando si marita  
@@ -273,6 +297,17 @@ Poi si rigira in faccia al marito:
 che non mi fossi giammai maritata!  
 Meglio assai restare vecchia zita:  
 non patirei le pene che mi date.
+
+# 41
+
+Napoli bella ne vorrei le case  
+e di Salerno il farro ed il riso.  
+Di Castellammare le tele pregiate  
+e una fanciulla a farne camicie.  
+D’Arola ne vorrei le cerase  
+e di Sorrento i fichi paradiso.  
+Di ‘sta boccuccia ne vorrei un bacio:  
+moro contento e vado in paradiso!
 
 # 42
 

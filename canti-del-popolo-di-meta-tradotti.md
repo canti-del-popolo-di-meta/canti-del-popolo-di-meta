@@ -22,6 +22,17 @@ così ti possano ingannare i tuoi parenti.
 Ti dico questo, a te, d’ora in avanti:  
 troppa folla ci trovi a quel convento.
 
+# 6
+
+Amavo una donna: era il suo nome Agnese.  
+Ne amavo un’altra: le dicevan Rosa.  
+Un’altra ancora: si chiamava... Teresa.  
+Ma... solo Teresa mi dava qualcosa.  
+E un giorno corsi di carriera tesa  
+per vedere ‘st’uccello ove si posa.  
+E volli darle un bacio, alla Teresa:  
+non mi saltano addosso Agnese e Rosa?
+
 # 8
 
 Albero pargoletto ti piantai  
@@ -45,6 +56,17 @@ Poi voltate le spallucce al sole
 e del sole i raggi catturate.  
 Quando alla finestrella v’affacciate  
 me ne tirate con la calamita.
+
+# 10
+
+Bella figliola, non ti arde il cuore  
+quando la sera mi senti passare?  
+Alluma la candela... vieni fuori;  
+diglielo a mamma tua che vuoi filare.  
+Se mamma tua ti dice una parola  
+diglielo tu che dentro non puoi stare:  
+— Là ci sta il nino mio, e io  
+tutta di fuoco mi sento incendiare.
 
 # 11
 
@@ -121,6 +143,17 @@ e mi dicesse: — Amore, non amare donne;
 e con la spada mi passasse parte a parte...  
 Io non rinnego nenna mia per altre donne.
 
+# 24
+
+Andai al macello a procurarmi un osso,  
+che ne potessi far minestra grassa.  
+Vi c’era un cane — giuro — assai grosso:  
+mi salta addosso come un satanasso.  
+Vado più avanti, ci incontrai un fosso:  
+io spingo il piede e mi trovai da basso.  
+Non piango che son caduto dentro al fosso:  
+piango la nenna mia che mo’ mi lascia.
+
 # 25
 
 Andai a pescare al più piccolo mare  
@@ -165,6 +198,16 @@ come una cassa piena di tesori.
 Ma se qualche giorno mi tenta la sorte  
 io scasso le porte e la vengo a trovare.
 
+# 33
+
+Madre, lo scorpione mi ha morsicata.  
+Tu non sai la ferita che mi fece.  
+Tu non sai il dolore che mi diede.  
+Madre, senza spargere sangue mi ha ferita.  
+Dall’inciarmatore sì, ci sono andata.  
+Medicine? Nessuna ci ha potuto.  
+Sentite la risposta che mi ha data:  
+fatti sanare da chi ti ci ha ferita.
 # 39
 
 La bella nenna quando si marita  
@@ -340,6 +383,17 @@ Io prego a Dio e insieme a tutti i santi
 che mi levassero dal tuo fuoco ardente.  
 Se gli occhi miei poi sbocciano in pianto  
 che serve ch’io li asciughi ogni momento?
+
+# 63
+
+Vi mando centomila buone sere,  
+ve ce le mando alla napoletana!  
+Tu scendi e metti l’olio alle candele:  
+ché ci vogliamo spassare oggi e domani.  
+Ti venisse sonno, per caso? E se ti viene  
+come ti viene così lo fai passare.  
+Se mamma vostra poi mi volesse bene  
+con voi mi lasciaria fin’a domani.
 
 # 65
 

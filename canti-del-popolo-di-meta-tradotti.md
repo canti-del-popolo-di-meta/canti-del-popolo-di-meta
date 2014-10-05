@@ -606,6 +606,17 @@ risparmi fodera e seta e cucitura.
 E se vuoi farle poi un'abbracciatella:  
 come abbracciassi un mazzo di fiori!
 
+# 58
+
+Lo vuoi saper lo spasso delle donne  
+quando il caro marito sta in viaggio?  
+Fuso e conocchia presto nascosti  
+e bocconi di lusso che si fanno!  
+S'arricciano i capelli tutt'intorno  
+e gli vien l'uzzo d'un taglio brioso!  
+Ma torna il marito e per bene le scuote:  
+mala cometa passa una volta l'anno.
+
 # 59
 
 Sono venuto per parlarti chiaro.  

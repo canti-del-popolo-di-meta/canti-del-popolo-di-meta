@@ -11,6 +11,28 @@ quanto di disumano in Grecia
 CANTI
 -----
 
+# 1
+
+La bella mia si chiama Maddalena;  
+un anno sano m’ha fatto penare.  
+E con un mano mi fa cenno e dice: vieni!  
+e con l’altra mano mi spinge lontano.  
+Con ‘sti capricci basta: che ci hai in testa?  
+Il tuo cuore dallo a chi glie l’hai promesso.  
+E se l’hai promesso a me, tienici fede;  
+e se l’hai promesso a un altro, non mancare.
+
+# 2
+
+— M’hanno detto che viene la morte  
+per pigliarsi le donne più belle.  
+Tu che sei bella non puoi star tranquilla:  
+queste bellezze a chi le vuoi lasciare?  
+Lasciale, deh, a chi ti vuole bene:  
+e io verbigrazia non ti voglio male.  
+— Le lascerei più tosto alla negra terra  
+per non lasciarle a te, cuore di cane.
+
 # 3
 
 Ce l’ho saputo che sei fatta santa;  

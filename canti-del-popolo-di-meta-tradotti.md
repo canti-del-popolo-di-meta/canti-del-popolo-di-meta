@@ -559,7 +559,18 @@ Lui è caruccetto e io delicatella:
 siamo tessuti con la stessa seta.  
 Io per dispetto me lo tengo a fianco  
 e chi non ce lo può vedere,  
-che lo strazi l’invidia.  
+che lo strazi l’invidia.
+
+# 51
+
+Palazzo amato, di ferro, ben guarnito,  
+che non ci posson nulla cannonate.  
+Io ci vorrei fare appena uno sternuto  
+e già il palazzotto è sgarrupato.  
+La gente dentro va chiamando aiuto:  
+— Chi è quel giovanotto tanto armato?  
+Fate festa, ché ho vinto  
+la nenna mia su seicento innamorati.
 
 # 51
 

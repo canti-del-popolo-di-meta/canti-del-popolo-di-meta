@@ -154,6 +154,17 @@ s’è prosciugate due sorgenti d’acqua.
 Ti lusingavi di farmi dispetto:  
 io un’altra amante tengo e tu ci schiatti.
 
+# 32
+
+Mamma, che di tua figlia hai paura,  
+voglio vedere se te la sai guardare.  
+Disloca macigni, fabbrica le mura,  
+ergile una torre davanti alla porta.  
+Serrala poi con sette serrature  
+come una cassa piena di tesori.  
+Ma se qualche giorno mi tenta la sorte  
+io scasso le porte e la vengo a trovare.
+
 # 42
 
 Nenna, che t’affacci  

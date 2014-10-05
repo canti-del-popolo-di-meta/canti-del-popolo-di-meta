@@ -517,6 +517,17 @@ Io per dispetto me lo tengo a fianco
 e chi non ce lo può vedere,  
 che lo strazi l’invidia.  
 
+# 51
+
+Rosella che nascesti nel deserto,  
+mai da me irrorata tu fosti.  
+Non farmi andare per il mondo sperso  
+come la nave che va cercando porto.  
+Alla nave se perde il trinchetto  
+altro non resta che cercarsi un porto.  
+Io agli strazi tuoi io non sto soggetto:  
+sto con la nera sorte, ma non son morto.
+
 # 52
 
 Inclina il sole e si fa notte;  

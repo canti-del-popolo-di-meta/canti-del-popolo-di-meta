@@ -339,6 +339,16 @@ sulle galere gli alberi e le antenne:
 se t’hai da maritare, fatti il corredo  
 ché l’uccello non vola senza penne.
 
+# 36
+
+Misero me! Son povero tordo,  
+tengo la testa una vampa di fuoco.  
+Viene il cacciatore e mi stordisce:  
+di questa vita mia fa festa e gioco.  
+Poi m'ha per le mani e mi finisce:  
+mi ci mette in quell'ardente fuoco.  
+Così è la donna quando s'incapriccia:  
+mi porta all'orto a cogliere viole!
 
 # 38
 

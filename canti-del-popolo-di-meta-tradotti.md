@@ -286,6 +286,17 @@ non voglio mangiar pesce con sudore.
 Non voglio che si dica, oggi o domani,  
 «passero vecchio in gabbia caduto».
 
+# 26
+
+A Roma andai per diventare Papa  
+ma per la via mi ritrovai *papùto*.  
+Vado per dar morsi a una senàpe:  
+in bocca mi sento una cima di ruta.  
+A mettere il piede dove non ci cape  
+tu ci puoi scivolare e ti dirupi.  
+Se vuoi sapere dove stan le capre:  
+dove vedi andare in giro spesso il lupo.
+
 # 27
 
 Io ti saluto a te, bianco palazzo;  

@@ -44,6 +44,17 @@ così ti possano ingannare i tuoi parenti.
 Ti dico questo, a te, d’ora in avanti:  
 troppa folla ci trovi a quel convento.
 
+# 4
+
+Alzo gli occhi al cielo e vedo ‘na stella:  
+potentia d’amore — quanto si’ bella!  
+Chiamo a Rosa e risponde Angiolella.  
+Dimmi, figliola, qual ti pare bella?  
+Da quando che mi vado appresso a quella  
+mi ci vuol far morir, la cana bella.  
+Colei si può nomar la vera stella:  
+colei che porta in petto du’ roselle.
+
 # 6
 
 Amavo una donna: era il suo nome Agnese.  
@@ -165,6 +176,17 @@ e mi dicesse: — Amore, non amare donne;
 e con la spada mi passasse parte a parte...  
 Io non rinnego nenna mia per altre donne.
 
+# 23
+
+Io ero un fantolino di due anni  
+e mamma me lo disse: «non amare donne».  
+Fino ai vent’anni la volli ubbidire  
+e poi ai ventuno volli amar due donne.  
+E la prima che amai era una tiranna  
+e la seconda mi ci fece perdere il sonno.  
+Le avessi dato retta alla mia mamma!  
+Non ci avrei perso il bene del mio sonno.
+
 # 24
 
 Andai al macello a procurarmi un osso,  
@@ -268,6 +290,17 @@ E poi mi accoglie col desco imbandito:
 un coltelluccio, il pane ed il cacio.  
 Ma sapeste alla fine la Massese: nel piatto  
 non vuol lasciarci proprio niente!
+
+# 45
+
+Un giorno mi imparai calderaio: e questa  
+è la meglio arte che mi trovo.  
+Ecco che me ne andavo per Lustrano:  
+caldaie vecchie ve le metto a nuovo!  
+Viene una donna col tegame in mano:  
+sie’ mastro mio, conciamela buona!  
+Io ne vorrei sgranare a più non posso,  
+ché quanti più ne cerco, di buchi più ne trovo.
 
 # 46
 
@@ -394,6 +427,17 @@ E lei si volta e: — Povera me!
 Non ne facciamo indovinar la gente.  
 Io le risposi: — Amor non ha paura.  
 Io so l’amore come s’ha da fare.
+
+# 61
+
+Tengo una fame che mi mangerei  
+Napoli contornata di panelle.  
+Tengo una sete che mi beverei  
+Castellammare con le Fontanelle.  
+Tengo un passo che camminerei  
+Carotto, Pozzopiano e Trasaella.  
+Un sonno tengo, che mi dormirei  
+cinquecent’anni con nennella bella.
 
 # 62
 

@@ -182,6 +182,17 @@ un coltelluccio, il pane ed il cacio.
 Ma sapeste alla fine la Massese: nel piatto  
 non vuol lasciarci proprio niente!
 
+# 46
+
+Io stavo un giorno con i miei pensieri,  
+a san Francesco, e tra me e me pregavo.  
+Dicevo *paternostri* e *misereri*  
+come al solito mio io soglio fare.  
+Scappa la lampada e se ne svelle il lume:  
+e io che stavo sotto l'ebbi da pagare.  
+Vedete quant'è grande la fortuna mia:  
+voglio far bene e scappo a fare male!
+
 # 47
 
 Ma come faccio per poterti parlare?  

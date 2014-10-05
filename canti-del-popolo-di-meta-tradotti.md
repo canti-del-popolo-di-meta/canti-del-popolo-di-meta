@@ -350,6 +350,17 @@ sulle galere gli alberi e le antenne:
 se t’hai da maritare, fatti il corredo  
 ché l’uccello non vola senza penne.
 
+# 35
+
+Mi voglio fare una schioppétta a miccia:  
+ci voglio andare quattro giorni a caccia.  
+Sotto a una ripa ci trovai un riccio:  
+quattro botte gli meno e non lo faccio.  
+E subito subito ci cambio la miccia,  
+ma la schioppétta mi fa catenaccio.  
+Non piango ché ho perduto il riccio:  
+piango a nennella mia ché non s'affaccia.
+
 # 36
 
 Misero me! Son povero tordo,  

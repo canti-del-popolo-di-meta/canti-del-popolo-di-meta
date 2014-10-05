@@ -383,6 +383,17 @@ mi ci mette in quell'ardente fuoco.
 Così è la donna quando s'incapriccia:  
 mi porta all'orto a cogliere viole!
 
+# 37
+
+Misero me! Son povero soldato;  
+la mia libertà io l'ho perduta.  
+Ho mangiato pane di forzato  
+e acqua con i vermi ne ho bevuta.  
+Mamma e padre m'hanno abbandonato;  
+i meglio amici miei m'hanno tradito.  
+Se il cielo me ne scampa da soldato  
+vo' far pace con lei che m'ha tradito.
+
 # 38
 
 Muso d’argento mio, musillo ‘e argiento,  

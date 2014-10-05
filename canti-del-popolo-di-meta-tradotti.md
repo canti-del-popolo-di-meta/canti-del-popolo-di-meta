@@ -220,6 +220,17 @@ il naso uguale uguale a un pappagallo.
 Più còncava pure d’una vecchierella  
 più storta d’una storpia e ancora parli!
 
+# 20
+
+Figliolo, la tua faccia rubizza  
+per queste case ci sale e ci scende.  
+Mandi imbasciata a mille fanciulle:  
+nessuna mamma ti vuol dar la figlia.  
+Ne hai fatte di carambole e d'imbrogli:  
+non c'è incappata nessuna nel tuo vischio!  
+Questo ti dico a te, figliolo bello:  
+vecchio ti fai e nessuna ti piglia.
+
 # 21
 
 Galera dai nuovi paramenti,  
@@ -230,7 +241,7 @@ Galera, se m'incappi sotto vento
 giuro che le vele ti faccio calare.  
 — Non ho paura d'acqua né di vento:  
 tengo a nennillo mio marinaio.
- 
+
 # 22
 
 Ci vogliamo amare e la gente non vuole.  

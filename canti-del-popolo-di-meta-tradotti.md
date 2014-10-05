@@ -55,6 +55,17 @@ mi ci vuol far morir, la cana bella.
 Colei si può nomar la vera stella:  
 colei che porta in petto du’ roselle.
 
+# 5
+
+All’acqua all’acqua delle fontanelle  
+dove ci vanno le donne a lavare  
+me ne voglio scegliere la meglio  
+e sempre con me la voglio portare.  
+Tutti mi diranno: quanto è bella!  
+Dove l’hai fatta questa caccia reale?  
+— L’ho fatta alle porte dell’Avella  
+dove la neve non si spegne mai.
+
 # 6
 
 Amavo una donna: era il suo nome Agnese.  

@@ -22,6 +22,17 @@ dov’è perduto quel dolce sapore?
 Vieni qui, morte, trovaci riparo,  
 tanto la bella mia ha cambiato amore.
 
+# 11
+
+Carcere fatto a volta e non a trave  
+io meschinello dentro mi ci trovo.  
+Carcere che spezza gli uomini valenti:  
+ci entrano e ci lasciano la tempra.  
+Viene il carceriere con le chiavi  
+assedia la porta di spranghe e di chiodi.  
+Misero me, se carcerato vado;  
+chiamo amici e parenti e non ne trovo.
+
 # 12
 
 Che odore di garofani che sento,  
@@ -75,6 +86,16 @@ il naso uguale uguale a un pappagallo.
 Più còncava pure d’una vecchierella  
 più storta d’una storpia e ancora parli!
 
+# 22
+
+Ci vogliamo amare e la gente non vuole.  
+Ma che ne vuole ‘sta gente da me?  
+Vogliono che di ‘sti panni io mi ne spogli,  
+ché non posso fare l’amore in eterno?  
+Ma io, venisse pure la maestà di Spagna  
+e mi dicesse: — Amore, non amare donne;  
+e con la spada mi passasse parte a parte...  
+Io non rinnego nenna mia per altre donne.
 
 # 25
 
@@ -175,6 +196,17 @@ Io per dispetto me lo tengo a fianco
 e chi non ce lo può vedere,  
 che lo strazi l’invidia.  
 
+# 52
+
+Inclina il sole e si fa notte;  
+chi mi vuol bene stasera non vedo.  
+Il sudore mi bagna della morte;  
+penso ch’è fatta notte e non lo vedo.  
+Alla porta lascio la risposta;  
+finestrella senza luce di candela,  
+io vi lascio con la buona notte:  
+per me non mancherà la buona sera.
+
 # 54
 
 Sera passai nel ventre di un vico;  
@@ -185,6 +217,17 @@ Se ne addiede il padrone da lontano:
 — Sta’ attento costì, bada a quei meloni.  
 E io timoroso delle melanzane  
 coglievo noci persiche e meloni.
+
+# 55
+
+Di sera passavo e tu, bella, dormivi.  
+Io in tutto il tuo giardino camminai.  
+E in mezzo al giardino un albero pregiato,  
+ma per scrupolo mio me ne scansai.  
+Con te fui più cortese ancora:  
+ti eri scoperta e io ti ricoprii.  
+Di una cosa soltanto ci rimasi male:  
+il fuoco era acceso e io non mi scaldai.
 
 # 56
 
@@ -218,6 +261,17 @@ E lei si volta e: — Povera me!
 Non ne facciamo indovinar la gente.  
 Io le risposi: — Amor non ha paura.  
 Io so l’amore come s’ha da fare.
+
+# 67
+
+Vorrei diventare un bel picciotto  
+con un orcetto in spalla a vender acqua.  
+Me ne andrei in giro per ‘sti palazzotti:  
+— Belle signore, chi ne vuol acqua?  
+Si volta una figliola alla finestra:  
+— Chi è questo piccino a vender acqua?  
+Io le rispondo con parole accorte:  
+— Son lacrime d’amore e non è acqua!
 
 # 68
 

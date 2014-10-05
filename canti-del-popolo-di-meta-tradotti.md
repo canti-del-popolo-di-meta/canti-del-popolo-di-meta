@@ -514,6 +514,18 @@ e fece i bastimenti a navigare.
 E poi fece te, colomba lucente,  
 e ti ci fece per il mio tormento.
 
+# 57
+
+Sposarti devi?  
+E allora ascolta: pigliatela bella,  
+però non troppo ché poi ti fa paura.  
+Pigliala bruna e generosa,  
+ma che sia delicata alla cintura.  
+Così se devi farle in dono una sottana  
+risparmi fodera e seta e cucitura.  
+E se vuoi farle poi un'abbracciatella:  
+come abbracciassi un mazzo di fiori!
+
 # 59
 
 Sono venuto per parlarti chiaro.  

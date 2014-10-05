@@ -209,6 +209,17 @@ il naso uguale uguale a un pappagallo.
 Più còncava pure d’una vecchierella  
 più storta d’una storpia e ancora parli!
 
+# 21
+
+Galera dai nuovi paramenti,  
+stai scoperta cento miglia a mare.  
+Vele d'oro e remi d'argento  
+quanto più porti tu più bella pari!  
+Galera, se m'incappi sotto vento  
+giuro che le vele ti faccio calare.  
+— Non ho paura d'acqua né di vento:  
+tengo a nennillo mio marinaio.
+ 
 # 22
 
 Ci vogliamo amare e la gente non vuole.  

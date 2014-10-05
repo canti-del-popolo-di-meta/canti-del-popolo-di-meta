@@ -11,6 +11,17 @@ quanto di disumano in Grecia
 CANTI
 -----
 
+# 3
+
+Ce l’ho saputo che sei fatta santa;  
+pure alla chiesa ci vai, spessamente.  
+'Sta coronella, neh, che porti avanti,  
+tu ce la porti a inganno della gente.  
+A me tu m’hai ingannato, a ‘nu povero amante:  
+così ti possano ingannare i tuoi parenti.  
+Ti dico questo, a te, d’ora in avanti:  
+troppa folla ci trovi a quel convento.
+
 # 8
 
 Albero pargoletto ti piantai  
@@ -21,6 +32,19 @@ Il frutto dolce mi si fece amaro:
 dov’è perduto quel dolce sapore?  
 Vieni qui, morte, trovaci riparo,  
 tanto la bella mia ha cambiato amore.
+
+# 9
+
+Da quest’altana, bella, vi mostrate:  
+i biondi capellucci vi sciogliete.  
+Poi li lavate a una conchetta d’acqua  
+e ve li fate biondi più che l’oro.  
+Quando ve li avvolgete alla spadina  
+vi fate ancor più bianca e vermiglietta.  
+Poi voltate le spallucce al sole  
+e del sole i raggi catturate.  
+Quando alla finestrella v’affacciate  
+me ne tirate con la calamita.
 
 # 11
 
@@ -206,6 +230,17 @@ Alla porta lascio la risposta;
 finestrella senza luce di candela,  
 io vi lascio con la buona notte:  
 per me non mancherà la buona sera.
+
+# 53
+
+Sera ci andai, ci trovai il marito  
+e me la feci la mala nottata!  
+Mi ci nascosi sotto alla lettiera;  
+come un ragno me ne andavo per casa.  
+Disse il marito alla su’ mogliera  
+perché tanto rumore per la casa?  
+— Dormi, marito mio, ti venga bene:  
+quest’è la gatta che sempre ci trase.
 
 # 54
 

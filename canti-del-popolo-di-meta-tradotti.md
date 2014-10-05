@@ -198,6 +198,17 @@ e di pece non ti basta un bastimento.
 Ma se tu la vuoi sanare questa falla  
 d'uopo è una botta del mio gran martello!
 
+# 18
+
+Figliola, e appènditici a 'sta ginestra!  
+Al tempo che t'amavo io ero pazzo.  
+Màmmeta parla d'imbastire parentela:  
+tu non sei buona neppure a far da serva.  
+Se non tieni creanza io te ne imparo:  
+meglio che parli poco o tu ne buschi!  
+Non prende un calesse tante botte  
+quanti cefali ci vanno nella nassa.
+
 # 19
 
 Figliola, ti lusinghi d’esser bella...  

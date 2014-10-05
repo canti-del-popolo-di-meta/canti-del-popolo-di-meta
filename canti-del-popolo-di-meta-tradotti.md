@@ -77,6 +77,17 @@ per vedere ‘st’uccello ove si posa.
 E volli darle un bacio, alla Teresa:  
 non mi saltano addosso Agnese e Rosa?
 
+# 7
+
+La prima volta che mi confessai  
+mi confessai da un santo predicatore.  
+La prima cosa che mi addimandò,  
+mi disse: Figlio, fai all’amore?  
+Io gli risposi: Padre, e che ne sai?  
+— Io conosco le tue intenzioni.  
+Una penitenza te la voglio dare:  
+va’ da lei spesso e portale più amore.
+
 # 8
 
 Albero pargoletto ti piantai  
@@ -133,6 +144,17 @@ Se qualcuno me la guarda con la voglia
 glie lo faccio pigliare l’olio santo!  
 E se mamma tua di noi non è contenta  
 tu ti fai monacella e io monaco santo.
+
+# 14
+
+Domenica mattina delle Palme
+non si fosse mai per me levato giorno!
+Alla chiesa andai, per portar la palma:
+mi vidi almeno cento sbirri attorno.
+Gli dissi: non ho fatto danno,
+non ho ucciso nessuno a ‘ste contrade!
+Da Napoli è venuta la condanna:
+stare con nenna mia la notte e ‘l giorno.
 
 # 15
 
@@ -230,6 +252,15 @@ Del tuo corpetto ne vorrei un nastro,
 un capello soltanto di ‘ste trecce.  
 Voglia il cielo t’avessi in queste braccia:  
 me ne vorrei morir di contentezza.
+
+# 28
+
+Biondi capelli miei, biondi capelli,
+solo se camminate siete bella.
+Fate morir gli amanti a mille a mille
+e poi li sanate con quest’occhi belli.
+In questo palazzo ce ne stanno mille;
+solo nennella mia è la più bella.
 
 # 29
 
@@ -506,6 +537,17 @@ Ti venisse sonno, per caso? E se ti viene
 come ti viene così lo fai passare.  
 Se mamma vostra poi mi volesse bene  
 con voi mi lasciaria fin’a domani.
+
+# 64
+
+Lo sai che ho fatto domenica mattina?
+A Positano me ne andai a mangiare:
+e mi mangiai un porcello e una gallina
+un agnellino senza tôr la lana
+di maccheroni una zuppiera sana
+e pure un’infornata di panelle.
+Ma dopo questo ventre mio non era sazio
+che suonava desolato come una campana.
 
 # 65
 

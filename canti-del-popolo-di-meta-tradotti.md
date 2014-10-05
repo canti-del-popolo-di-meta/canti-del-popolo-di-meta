@@ -693,3 +693,14 @@ Torna il cane al padrone, ma... senza quaglia:
 e il cacciatore collera si piglia!  
 Non serve far tutto questo sagli sagli:  
 quanto più tu t’innalzi, più botte pigli.
+
+# 69
+
+Zi' monacella mia, con questo manto pinto  
+tu dici a tutti che vuoi far la santa!  
+E poi di anni ce n'hai all'improvviso venti:  
+— Voglio il maritiello, tenetevi 'sto manto.  
+Io vo' farmi una scala di rami leggeri:  
+lo voglio scalar per bene 'sto convento,  
+lo voglio scalare da fuori e da dentro.  
+Dov'è zi' monacella mia, ché non la sento?

@@ -420,6 +420,21 @@ un coltelluccio, il pane ed il cacio.
 Ma sapeste alla fine la Massese: nel piatto  
 non vuol lasciarci proprio niente!
 
+# 44
+
+Mi ci imbarcai un dì con un Torrese,  
+credendo di arricchire la mia casa.  
+Lui era bello e tanto nobile e cortese  
+che s'era donna non glie lo negavo un bacio.  
+A Torre mi faceva il bel sembiante  
+e in Sardegna poi mi fa servir da mozzo.  
+Chi ci naviga più con i Torresi!  
+Preferisco fare lo scaricatore al porto.  
+E vo' pregare Dio e santa Rosa  
+che mi lascino tornar presto al paese:  
+ché se l'ingaggio mi durava un altro mese  
+neanche la pelle ci riportavo a casa.
+
 # 45
 
 Un giorno mi imparai calderaio: e questa  

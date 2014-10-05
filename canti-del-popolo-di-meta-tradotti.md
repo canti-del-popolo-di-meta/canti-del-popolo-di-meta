@@ -165,6 +165,17 @@ come una cassa piena di tesori.
 Ma se qualche giorno mi tenta la sorte  
 io scasso le porte e la vengo a trovare.
 
+# 39
+
+La bella nenna quando si marita  
+si pregia d’aver tolto un gran tesoro.  
+Ma un par giorni ch’è stata a marito  
+ed eccotela chioccia spennacchiata!  
+Poi si rigira in faccia al marito:  
+che non mi fossi giammai maritata!  
+Meglio assai restare vecchia zita:  
+non patirei le pene che mi date.
+
 # 42
 
 Nenna, che t’affacci  
@@ -318,6 +329,39 @@ E lei si volta e: — Povera me!
 Non ne facciamo indovinar la gente.  
 Io le risposi: — Amor non ha paura.  
 Io so l’amore come s’ha da fare.
+
+# 62
+
+Dolci occhi neri e cuore di diamante  
+come mi ti cancello dalla mente?  
+Son quei vicini che ti tieni accanto  
+che m’han fatto di nascosto il tradimento.  
+Io prego a Dio e insieme a tutti i santi  
+che mi levassero dal tuo fuoco ardente.  
+Se gli occhi miei poi sbocciano in pianto  
+che serve ch’io li asciughi ogni momento?
+
+# 65
+
+Vorrei diventare un arbusto antico,  
+fare una siepe impervia alla tua porta.  
+E quando tu usciresti ogni mattina  
+io addosso a te mi ci vorrei avvinghiare.  
+Tu mi diresti: *làsseme, restina*,  
+la messa è uscita e non mi fai arrivare.  
+— Tanto ti lascio a te, nennella mia,  
+quando m’hai detto che mi torni a amare.
+
+# 66
+
+Vorrei diventare un bel moschillo  
+per librarmi in braccio alla mia bella.  
+Me ne vorrei centellinare il sangue  
+come una vespa con l’uva moscatella!  
+Ma quanto è buono questo miele! Cielo,  
+non me ne strapperei fino in aeternum.  
+In questo luogo ce ne stanno mille:  
+tu sola agli occhi miei sei la più bella.
 
 # 67
 

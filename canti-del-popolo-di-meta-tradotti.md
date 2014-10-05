@@ -328,6 +328,17 @@ s’è prosciugate due sorgenti d’acqua.
 Ti lusingavi di farmi dispetto:  
 io un’altra amante tengo e tu ci schiatti.
 
+# 30
+
+La tortora se perde la compagna  
+un giorno intero se ne sta intristita.  
+Poi trova l'acqua fresca, vi si bagna,  
+e se la beve tutta annuvolata.  
+Poi se ne va alla cima di un monte  
+e là si piange le disgrazie sue.  
+Così è la nenna quando si scompagna:  
+smarrisce ogni gusto e ogni piacere.
+
 # 31
 
 Il piacere del ventre: il pane.  

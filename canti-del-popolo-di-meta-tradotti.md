@@ -33,6 +33,15 @@ glie lo faccio pigliare l’olio santo!
 E se mamma tua di noi non è contenta  
 tu ti fai monacella e io monaco santo.
 
+# 15
+
+Faccia di noce persica sfiorita:  
+pare che la gelata t’ha seccato!  
+Mi vieni dietro come un disperato  
+come se non ci fossero più a ‘sto mondo innamorate.  
+Racconti in giro che non m’hai voluta:  
+perché non dici che io ti ho lasciato?
+
 # 16
 
 Finestrella mia, intarsiata tutta  
@@ -77,6 +86,28 @@ Io voglio abbandonarlo il mio mestiere,
 non voglio mangiar pesce con sudore.  
 Non voglio che si dica, oggi o domani,  
 «passero vecchio in gabbia caduto».
+
+# 27
+
+Io ti saluto a te, bianco palazzo;  
+l’artefice t’ha dato tant’altezza!  
+Io vi saluto a voi, cuscini e materassi  
+ove riposa la vostra bellezza.  
+Del tuo corpetto ne vorrei un nastro,  
+un capello soltanto di ‘ste trecce.  
+Voglia il cielo t’avessi in queste braccia:  
+me ne vorrei morir di contentezza.
+
+# 29
+
+La bella mia sta malata a letto:  
+tiene la mala pasqua che la batte.  
+S’è mangiate due galline cotte  
+s’è rosicchiate l’ossa come un gatto  
+s’è mangiati due sacchi di confetti  
+s’è prosciugate due sorgenti d’acqua.  
+Ti lusingavi di farmi dispetto:  
+io un’altra amante tengo e tu ci schiatti.
 
 # 42
 
@@ -155,6 +186,17 @@ Se ne addiede il padrone da lontano:
 E io timoroso delle melanzane  
 coglievo noci persiche e meloni.
 
+# 56
+
+Sia benedetto chi fabbricò il mondo,  
+ché chi lo fece sì che seppe fare!  
+Fece prima la notte e dopo il giorno,  
+e poi li seppe crescere e scemare;  
+poi fece il mare, tutt’intorno intorno,  
+e fece i bastimenti a navigare.  
+E poi fece te, colomba lucente,  
+e ti ci fece per il mio tormento.
+
 # 59
 
 Sono venuto per parlarti chiaro.  
@@ -166,6 +208,17 @@ Io coi denari ho dalla mia gli amici.
 Tu te ne vai con tua figlia baciata:  
 io me ne vado contento e felice.
 
+# 60
+
+Te ne ricordi quando si mieteva?  
+Ti stavo dietro e ti porgevo il grano:  
+facevo covoncini e te li davo,  
+poi ti rubavo un pizzico alla mano.  
+E lei si volta e: — Povera me!  
+Non ne facciamo indovinar la gente.  
+Io le risposi: — Amor non ha paura.  
+Io so l’amore come s’ha da fare.
+
 # 68
 
 Potessi fare come fa la quaglia:  
@@ -176,4 +229,3 @@ Torna il cane al padrone, ma... senza quaglia:
 e il cacciatore collera si piglia!  
 Non serve far tutto questo sagli sagli:  
 quanto più tu t’innalzi, più botte pigli.
-

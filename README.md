@@ -1,4 +1,4 @@
 Canti del popolo di Meta
 ========================
 
-Canti del popolo di Meta, annotati e pubblicati da Luigi Molinaro del Chiaro
+Annotati e pubblicati da Luigi Molinaro del Chiaro, tradotti da Roberto Reale.

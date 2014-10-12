@@ -582,7 +582,7 @@ Si vuò' sapere a do' stanno li ccrape ,
 A do' vide 'nturnià' spisso lu lupo.
 
 *A Roma andai per diventare Papa  
-ma per la via mi ritrovai *papùto*.  
+ma per la via mi ritrovai papùto.  
 Vado per dar morsi a una senàpe:  
 in bocca mi sento una cima di ruta.  
 A mettere il piede dove non ci cape  

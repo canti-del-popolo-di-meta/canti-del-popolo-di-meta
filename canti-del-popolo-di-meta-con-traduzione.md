@@ -1009,7 +1009,7 @@ I' vaco pe' fà' buon' e faccio male.
 
 *Io stavo un giorno con i miei pensieri,  
 a san Francesco, e tra me e me pregavo.  
-Dicevo *paternostri* e *misereri*  
+Dicevo paternostri e misereri  
 come al solito mio io soglio fare.  
 Scappa la lampada e se ne svelle il lume:  
 e io che stavo sotto l'ebbi da pagare.  

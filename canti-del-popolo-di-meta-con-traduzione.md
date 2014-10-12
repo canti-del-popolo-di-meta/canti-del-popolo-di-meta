@@ -939,7 +939,7 @@ A l' ùtemo volea fà' la surrasa.
 *E mi chiamò un giorno una Massese,  
 che volassi in un salto alla sua casa!  
 Io mi lanciai di carriera tesa  
-e trovo lei, la porta aperta, e: — *Trase*.  
+e trovo lei, la porta aperta, e: — Trase.  
 E poi mi accoglie col desco imbandito:  
 un coltelluccio, il pane ed il cacio.  
 Ma sapeste alla fine la Massese: nel piatto  
@@ -1416,7 +1416,7 @@ Quanno m' he' 'itto che me tuorn' âmare.
 fare una siepe impervia alla tua porta.  
 E quando tu usciresti ogni mattina  
 io addosso a te mi ci vorrei avvinghiare.  
-Tu mi diresti: *làsseme, restina*,  
+Tu mi diresti: làsseme, restina,  
 la messa è uscita e non mi fai arrivare.  
 — Tanto ti lascio a te, nennella mia,  
 quando m’hai detto che mi torni a amare.*

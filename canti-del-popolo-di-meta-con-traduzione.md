@@ -270,7 +270,7 @@ E serr' 'a porta cu' lecchiett' e chiuove.
 Misero me , si carcerato vavo ,  
 Chiamm' amic' e parient' e nu' ne trovo!
 
-*Carcere fatto a volta e non a trave  
+*Carcere fatto a volta e non a trave,    
 io meschinello dentro mi ci trovo.  
 Carcere che spezza gli uomini valenti:  
 ci entrano e ci lasciano la tempra.  

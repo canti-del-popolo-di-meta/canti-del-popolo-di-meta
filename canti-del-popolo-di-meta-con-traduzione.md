@@ -56,14 +56,14 @@ Duna 'stu cor' a chi prummiso l'haie .
 Si l' haie prummis' a me, tu tiene tiene ;  
 Si l' haie prummis' a 'n ato, nu' mancare.
 
-*La bella mia si chiama Maddalena;  
+*La mia bella si chiama Maddalena;  
 un anno sano m’ha fatto penare.  
-E con un mano mi fa cenno e dice: vieni!  
-e con l’altra mano mi spinge lontano.  
-Con ‘sti capricci basta: che ci hai in testa?  
-Il tuo cuore dallo a chi glie l’hai promesso.  
+Con un mano mi fa cenno e dice: vieni!;    
+con l’altra mi spinge lontano.  
+Basta con questi capricci: che hai in testa?  
+Il tuo cuore dallo a chi l’hai promesso.  
 E se l’hai promesso a me, tienici fede;  
-e se l’hai promesso a un altro, non mancare.*
+se l’hai promesso a un altro, non mancare.*
 
 
 # 2
@@ -83,7 +83,7 @@ Tu che sei bella non puoi star tranquilla:
 queste bellezze a chi le vuoi lasciare?  
 Lasciale, deh, a chi ti vuole bene:  
 e io verbigrazia non ti voglio male.  
-— Le lascerei più tosto alla negra terra  
+— Le lascerei più tosto alla terra negra,      
 per non lasciarle a te, cuore di cane.*
 
 
@@ -98,14 +98,14 @@ Cussì te pòzzano ingannà' li tuoie parente.
 Chesto te dic' a te, da oggi avante ,  
 Troppa folla ge truov' a lu cunvento.
 
-*Ce l’ho saputo che sei fatta santa;  
-pure alla chiesa ci vai, spessamente.  
-'Sta coronella, neh, che porti avanti,  
+*Ho saputo che ti sei fatta santa;  
+pure alla chiesa vai, di frequente.  
+'Sta coroncina, neh, che porti avanti,  
 tu ce la porti a inganno della gente.  
-A me tu m’hai ingannato, a ‘nu povero amante:  
+A me, tu m’hai ingannato, povero amante:  
 così ti possano ingannare i tuoi parenti.  
-Ti dico questo, a te, d’ora in avanti:  
-troppa folla ci trovi a quel convento.*
+Ti dico questo, a te: d’ora in avanti    
+troppa folla ci troverai a quel convento.*
 
 
 # 4
@@ -119,14 +119,14 @@ Me ge vo' fà' murì' la cana bella.
 Chella se pò chiammà' la vera stella.  
 Chella che porta 'mpietto di' ruselle.
 
-*Alzo gli occhi al cielo e vedo ‘na stella:  
-potentia d’amore — quanto si’ bella!  
-Chiamo a Rosa e risponde Angiolella.  
+*Alzo gli occhi al cielo e vedo una stella:  
+potenza d’amore — quanto sei bella!  
+Chiamo Rosa e risponde Angiolella.  
 Dimmi, figliola, qual ti pare bella?  
-Da quando che mi vado appresso a quella  
-mi ci vuol far morir, la cana bella.  
+Da quando (che mi) vado appresso a quella,  
+mi ci vuol far morire, la cagna bella.  
 Colei si può nomar la vera stella:  
-colei che porta in petto du’ roselle.*
+colei che porta in petto due roselle.*
 
 
 # 5
@@ -140,14 +140,14 @@ A do' l' he' fatta 'sta caccia riale?
 &mdash; L' aggio fatt' a li pporte de l'Avella ,  
 A do' la neve nun ze spegna maie.
 
-*All’acqua all’acqua delle fontanelle  
-dove ci vanno le donne a lavare  
-me ne voglio scegliere la meglio  
+*All’acqua, all’acqua delle fontanelle  
+dove vanno le donne a lavare,    
+mi voglio scegliere la meglio  
 e sempre con me la voglio portare.  
 Tutti mi diranno: quanto è bella!  
 Dove l’hai fatta questa caccia reale?  
-— L’ho fatta alle porte dell’Avella  
-dove la neve non si spegne mai.*
+— L’ho fatta alle porte dell’Avella,    
+dove la neve non si consuma mai.*
 
 
 # 6
@@ -161,14 +161,14 @@ Pe' vedè' 'st' auciello a do' s' aposa ;
 Iette pe' dà' nu vas' a 'sta Teresa ,  
 E 'ncuollo me currett' Agnese e Rosa.
 
-*Amavo una donna: era il suo nome Agnese.  
+*Amavo una donna: il suo nome era Agnese.  
 Ne amavo un’altra: le dicevan Rosa.  
-Un’altra ancora: si chiamava... Teresa.  
+Un’altra ancora: si chiamava Teresa.  
 Ma... solo Teresa mi dava qualcosa.  
 E un giorno corsi di carriera tesa  
-per vedere ‘st’uccello ove si posa.  
-E volli darle un bacio, alla Teresa:  
-non mi saltano addosso Agnese e Rosa?*
+per vedere quest’uccello ove si posa.  
+Stavo per dare un bacio, alla Teresa:  
+e non mi saltano addosso Agnese e Rosa?*
 
 
 # 7
@@ -184,9 +184,9 @@ Spisse va vance e pòrtece chiù amore.
 
 *La prima volta che mi confessai  
 mi confessai da un santo predicatore.  
-La prima cosa che mi addimandò,  
-mi disse: Figlio, fai all’amore?  
-Io gli risposi: Padre, e che ne sai?  
+La prima cosa che mi domandò,  
+mi disse: Figliolo, fai all’amore?  
+Io gli risposi: Padre, e tu che ne sai?  
 — Io conosco le tue intenzioni.  
 Una penitenza te la voglio dare:  
 va’ da lei spesso e portale più amore.*
@@ -204,7 +204,7 @@ Viènece, mort', e tròvece riparo ,
 Mo che la bella mi' ha cagnat' amore.
 
 *Albero pargoletto ti piantai  
-ti innaffiai con il mio sudore.  
+e ti innaffiai con il mio sudore.  
 Il vento viene e ne strappa un ramo  
 la fronda verde mutò di colore.  
 Il frutto dolce mi si fece amaro:  
@@ -228,11 +228,11 @@ Me ne tirate cu' la calamita.
 
 *Da quest’altana, bella, vi mostrate:  
 i biondi capellucci vi sciogliete.  
-Poi li lavate a una conchetta d’acqua  
-e ve li fate biondi più che l’oro.  
-Quando ve li avvolgete alla spadina  
-vi fate ancor più bianca e vermiglietta.  
-Poi voltate le spallucce al sole  
+Poi a una conchetta d’acqua li lavate    
+e biondi più che l’oro ve li fate.    
+Quando alla spadina ve li avvolgete,    
+ancor più bianca e vermiglietta vi fate.    
+Poi le spallucce al sole voltate    
 e del sole i raggi catturate.  
 Quando alla finestrella v’affacciate  
 me ne tirate con la calamita.*
@@ -254,7 +254,7 @@ quando la sera mi senti passare?
 Alluma la candela... vieni fuori;  
 diglielo a mamma tua che vuoi filare.  
 Se mamma tua ti dice una parola  
-diglielo tu che dentro non puoi stare:  
+diglielo, tu, che dentro non puoi stare:  
 — Là ci sta il nino mio, e io  
 tutta di fuoco mi sento incendiare.*
 
@@ -270,12 +270,12 @@ E serr' 'a porta cu' lecchiett' e chiuove.
 Misero me , si carcerato vavo ,  
 Chiamm' amic' e parient' e nu' ne trovo!
 
-*Carcere fatto a volta e non a trave  
+*Carcere fatto a volta e non a trave,    
 io meschinello dentro mi ci trovo.  
 Carcere che spezza gli uomini valenti:  
 ci entrano e ci lasciano la tempra.  
 Viene il carceriere con le chiavi  
-assedia la porta di spranghe e di chiodi.  
+e serra la porta di spranghe e di chiodi.  
 Misero me, se carcerato vado;  
 chiamo amici e parenti e non ne trovo.*
 
@@ -292,13 +292,13 @@ E si màmmeta toia n' è cuntenta ,
 Tu munacell' e i' mònaco santo.
 
 *Che odore di garofani che sento,  
-in petto a nenna mia ce n’è una schianta!  
+in petto a nenna mia ce n’è un assortimento!  
 Questi non sono né garofani, né niente:  
 è respiro di nenna mia che odora tanto!  
 Se qualcuno me la guarda con la voglia  
-glie lo faccio pigliare l’olio santo!  
+glielo faccio pigliare l’olio santo!  
 E se mamma tua di noi non è contenta  
-tu ti fai monacella e io monaco santo.*
+tu ti fai monachella e io monaco santo.*
 
 
 # 13
@@ -352,7 +352,7 @@ Comme nun ge stèssero chiù 'nnammurate.
 Vaie dicenno che nu' m' he' vuluto ,  
 Pecchè nu' dice che t' aggio lassato?
 
-*Faccia di noce persica sfiorita:  
+*Faccia di noce persico sfiorito:  
 pare che la gelata t’ha seccato!  
 Mi vieni dietro come un disperato  
 come se non ci fossero più a ‘sto mondo innamorate.  
@@ -371,9 +371,9 @@ Centemìlia piezze te farria.
 Fenesta, te puozz' àrdere de fuoco ,  
 Pecchè ge tiene 'nchius' a nenna mia.
 
-*Finestrella mia, intarsiata tutta  
-come fronda di gelsomino.  
-La notte stai aperta e il giorno serrata:  
+*Finestrella mia, tutta intarsiata   
+come fronda di gelsomino,    
+la notte stai aperta e il giorno serrata:  
 lo fai apposta per tormento mio.  
 Finestra, se io ti avessi in altro luogo  
 in centomila schegge ti farei.  
@@ -436,7 +436,7 @@ Si' tutta struppïat' e sempe parle!
 
 *Figliola, ti lusinghi d’esser bella...  
 che in beltà nessuna ti è compagna.  
-A berlina io ti terrei su un rotella  
+A berlina io ti terrei su una rotella  
 tutta piena di polvere e di palle.  
 La bocca tieni della cinciarella  
 il naso uguale uguale a un pappagallo.  
@@ -457,7 +457,7 @@ Viecchio te fai' e nisciuno te piglia.
 
 *Figliolo, la tua faccia rubizza  
 per queste case ci sale e ci scende.  
-Mandi imbasciata a mille fanciulle:  
+Mandi ambasciata a mille fanciulle:  
 nessuna mamma ti vuol dar la figlia.  
 Ne hai fatte di carambole e d'imbrogli:  
 non c'è incappata nessuna nel tuo vischio!  
@@ -499,7 +499,7 @@ Nu' 'nganno nenna mia pe' 'n' ata donna.
 
 *Ci vogliamo amare e la gente non vuole.  
 Ma che ne vuole ‘sta gente da me?  
-Vogliono che di ‘sti panni io mi ne spogli,  
+Vogliono che di questi panni io mi spogli,  
 ché non posso fare l’amore in eterno?  
 Ma io, venisse pure la maestà di Spagna  
 e mi dicesse: — Amore, non amare donne;  
@@ -541,12 +541,12 @@ Chiagno nennella mia ca mo me lassa.
 
 *Andai al macello a procurarmi un osso,  
 che ne potessi far minestra grassa.  
-Vi c’era un cane — giuro — assai grosso:  
-mi salta addosso come un satanasso.  
-Vado più avanti, ci incontrai un fosso:  
-io spingo il piede e mi trovai da basso.  
+Ivi era un cane — giuro — assai grosso:  
+mi saltò addosso come un satanasso.  
+Andai più avanti, ci incontrai un fosso:  
+io spinsi il piede e mi trovai da basso.  
 Non piango che son caduto dentro al fosso:  
-piango la nenna mia che mo’ mi lascia.*
+piango la nenna mia che adesso mi lascia.*
 
 
 # 25
@@ -607,8 +607,8 @@ l’artefice t’ha dato tant’altezza!
 Io vi saluto a voi, cuscini e materassi  
 ove riposa la vostra bellezza.  
 Del tuo corpetto ne vorrei un nastro,  
-un capello soltanto di ‘ste trecce.  
-Voglia il cielo t’avessi in queste braccia:  
+un capello soltanto di queste bionde trecce.  
+Voglia il cielo t’avessi tra le braccia:  
 me ne vorrei morir di contentezza.*
 
 
@@ -643,7 +643,7 @@ I' 'n at' amante tengo e tu ge schiatte.
 *La bella mia sta malata a letto:  
 tiene la mala pasqua che la batte.  
 S’è mangiate due galline cotte  
-s’è rosicchiate l’ossa come un gatto  
+s’è rosicchiate l’ossa come una gatta  
 s’è mangiati due sacchi di confetti  
 s’è prosciugate due sorgenti d’acqua.  
 Ti lusingavi di farmi dispetto:  
@@ -664,11 +664,11 @@ Perde li guste , li spass' e li suone.
 *La tortora se perde la compagna  
 un giorno intero se ne sta intristita.  
 Poi trova l'acqua fresca, vi si bagna,  
-e se la beve tutta annuvolata.  
-Poi se ne va alla cima di un monte  
-e là si piange le disgrazie sue.  
+e se la beve tutta ingrigita.  
+Poi se ne va alla cima di una montagna    
+e là si piange la sua disgrazia.  
 Così è la nenna quando si scompagna:  
-smarrisce ogni gusto e ogni piacere.*
+smarrisce ogni gusto e ogni grazie.*
 
 
 # 31
@@ -686,9 +686,9 @@ Quanno me spasso nu poco cu' buie.
 Il piacere del vino: i polmoni.  
 Il piacere della lepre: la tana.  
 Il piacere delle serpi: i cepponi.  
-Il piacere dei maestri: i scolari.  
+Il piacere dei maestri: gli scolari.  
 Il piacere dei libri: i dottori.  
-Sei vuoi sapere il meglio piacere,  
+Sei vuoi sapere il miglior piacere,  
 quando mi prendo piacere con voi.*
 
 
@@ -766,12 +766,12 @@ La scuppetta me fice catenaccio.
 I' nu' chiagno ch' aggio perdut' 'o riccio :  
 Chiagno nennella mia ca nun z' affaccia.
 
-*Mi voglio fare una schioppétta a miccia:  
+*Mi voglio fare uno schioppétto a miccia:  
 ci voglio andare quattro giorni a caccia.  
 Sotto a una ripa ci trovai un riccio:  
 quattro botte gli meno e non lo faccio.  
 E subito subito ci cambio la miccia,  
-ma la schioppétta mi fa catenaccio.  
+ma lo schioppétto mi fa catenaccio.  
 Non piango ché ho perduto il riccio:  
 piango a nennella mia ché non s'affaccia.*
 
@@ -813,9 +813,9 @@ la mia libertà io l'ho perduta.
 Ho mangiato pane di forzato  
 e acqua con i vermi ne ho bevuta.  
 Mamma e padre m'hanno abbandonato;  
-i meglio amici miei m'hanno tradito.  
+i megliori amici m'hanno tradito.  
 Se il cielo me ne scampa da soldato  
-vo' far pace con lei che m'ha tradito.*
+voglio far pace con lei che m'ha tradito.*
 
 
 # 38
@@ -829,14 +829,14 @@ Chillo d' argient' è lu pròpri' amante.
 Ma si pe' sciorta se càgnen' i viente ,  
 Voglio chiù ben' a buie ch' a 'n at' amante.
 
-*Muso d’argento mio, musillo ‘e argiento,  
-sei piccerella e già tieni due amanti.  
+*Muso d’argento mio, musetto d'argento,  
+sei bambinetta e già tieni due amanti.  
 Il primo è d’oro e il secondo d’argento.  
 Ma tu dimmelo, nenna: a chi vuoi bene?  
 — Io a quello d’oro non lo stimo niente,  
 quello d’argento solo è il vero amante.  
 E se per sorte si cambieranno i venti  
-voglio più bene a voi che a un altro amante.*
+voglio più bene a voi che a altri amanti.*
 
 
 # 39
@@ -852,7 +852,7 @@ Nun patarria 'sti ppene che pate.
 
 *La bella nenna quando si marita  
 si pregia d’aver tolto un gran tesoro.  
-Ma un par giorni ch’è stata a marito  
+Ma un paio di giorni ch’è stata col marito  
 ed eccotela chioccia spennacchiata!  
 Poi si rigira in faccia al marito:  
 che non mi fossi giammai maritata!  
@@ -895,7 +895,7 @@ e una fanciulla a farne camicie.
 D’Arola ne vorrei le cerase  
 e di Sorrento i fichi paradiso.  
 Di ‘sta boccuccia ne vorrei un bacio:  
-moro contento e vado in paradiso!*
+muio contento e vado in paradiso!*
 
 
 # 42
@@ -986,14 +986,14 @@ Siè masto mio , conciamìa bona.
 I' ne vurria vuttare quanno maie :  
 Quanto chiù cerco, chiù pertòsere trovo.
 
-*Un giorno mi imparai calderaio: e questa  
-è la meglio arte che mi trovo.  
+*Un giorno mi imparai calderaio: 
+e questa è la meglio arte che mi trovo.  
 Ecco che me ne andavo per Lustrano:  
 caldaie vecchie ve le metto a nuovo!  
 Viene una donna col tegame in mano:  
-sie’ mastro mio, conciamela buona!  
+tie’ mastro mio, conciamela buona!  
 Io ne vorrei sgranare a più non posso,  
-ché quanti più ne cerco, di buchi più ne trovo.*
+ché quanti più ne cerco, di buchi, più ne trovo.*
 
 
 # 46
@@ -1010,7 +1010,7 @@ I' vaco pe' fà' buon' e faccio male.
 *Io stavo un giorno con i miei pensieri,  
 a san Francesco, e tra me e me pregavo.  
 Dicevo paternostri e misereri  
-come al solito mio io soglio fare.  
+come al solito io soglio fare.  
 Scappa la lampada e se ne svelle il lume:  
 e io che stavo sotto l'ebbi da pagare.  
 Vedete quant'è grande la fortuna mia:  
@@ -1032,7 +1032,7 @@ Lu lietto è fatto, si te vuò' cuccare.
 Mi voglio vestire da pio cappuccino  
 e alla tua porta poi vengo a suonare:  
 — Fammi la carità, figliola mia.  
-E lei mi dice: — Non ho che darti.  
+E lei mi dice: — Non ho che dare.  
 Mi son finiti il pane ed il vino.  
 Ma… c’è il letto fatto, se ti vuoi coricare.  
 — Io altro non cercavo, nenna mia!*
@@ -1051,7 +1051,7 @@ Si nun ge sta 'na nennella valente.
 
 *Palazzo nuovo non si può fabbricare  
 se non s’inizia dalle fondamenta.  
-E chi saprebbe arare la terra  
+E chi saprebbe la terra lavorare    
 se gli vengon meno i sette alimenti?  
 Alla chiesa, poi, come predicare  
 se manca il gran concorso della gente?  
@@ -1096,12 +1096,12 @@ Chi è lu giuveniello tant' armato?
 Facite festa , che l' aggio vinciuto  
 'Sta nenna cu' seciento 'nnammurate.
 
-*Palazzo amato, di ferro, ben guarnito,  
+*Palazzo armato, di ferro ben guarnito,  
 che non ci posson nulla cannonate.  
 Io ci vorrei fare appena uno sternuto  
 e già il palazzotto è sgarrupato.  
 La gente dentro va chiamando aiuto:  
-— Chi è quel giovanotto tanto armato?  
+— Chi è quel giovanotto tutto armato?  
 Fate festa, ché ho vinto  
 la nenna mia su seicento innamorati.*
 
@@ -1123,7 +1123,7 @@ Non farmi andare per il mondo sperso
 come la nave che va cercando porto.  
 Alla nave se perde il trinchetto  
 altro non resta che cercarsi un porto.  
-Io agli strazi tuoi io non sto soggetto:  
+Agli strazi tuoi io non sto soggetto:  
 sto con la nera sorte, ma non son morto.*
 
 
@@ -1159,14 +1159,14 @@ Ched' è tanto rummore pe' la casa?
 Ruorme , marito mio , te venga bene :  
 Chess' è la iatta che sempe ge trase.
 
-*Sera ci andai, ci trovai il marito  
-e me la feci la mala nottata!  
-Mi ci nascosi sotto alla lettiera;  
-come un ragno me ne andavo per casa.  
-Disse il marito alla su’ mogliera  
+*Di sera ci andai, ci trovai il marito  
+e me la feci una mala nottata!  
+Mi nascosi sotto al letto;  
+come un ragno me ne andavo per la casa.  
+Disse il marito al suo diletto      
 perché tanto rumore per la casa?  
 — Dormi, marito mio, ti venga bene:  
-quest’è la gatta che sempre ci trase.*
+questa è la gatta che sempre ci entra.*
 
 
 # 54
@@ -1227,7 +1227,7 @@ ché chi lo fece sì che seppe fare!
 Fece prima la notte e dopo il giorno,  
 e poi li seppe crescere e scemare;  
 poi fece il mare, tutt’intorno intorno,  
-e fece i bastimenti a navigare.  
+e fece i bastimenti per navigare.  
 E poi fece te, colomba lucente,  
 e ti ci fece per il mio tormento.*
 
@@ -1245,7 +1245,7 @@ Comm' abbracciasse nu mazzo de sciure.
 
 *Sposarti devi?  
 E allora ascolta: pigliatela bella,  
-però non troppo ché poi ti fa paura.  
+però non troppo. ché poi ti fa paura.  
 Pigliala bruna e generosa,  
 ma che sia delicata alla cintura.  
 Così se devi farle in dono una sottana  
@@ -1333,8 +1333,8 @@ Napoli contornata di panelle.
 Tengo una sete che mi beverei  
 Castellammare con le Fontanelle.  
 Tengo un passo che camminerei  
-Carotto, Pozzopiano e Trasaella.  
-Un sonno tengo, che mi dormirei  
+per Carotto, Pozzopiano e Trasaella.  
+Un sonno tengo, che dormirei  
 cinquecent’anni con nennella bella.*
 
 
@@ -1371,13 +1371,13 @@ Si mamma toia me volesse bene ,
 Cu' buie me lassarria fin' a dimane.
 
 *Vi mando centomila buone sere,  
-ve ce le mando alla napoletana!  
+ve le mando alla napoletana!  
 Tu scendi e metti l’olio alle candele:  
 ché ci vogliamo spassare oggi e domani.  
-Ti venisse sonno, per caso? E se ti viene  
+Ti venisse sonno, per caso? E se ti viene,    
 come ti viene così lo fai passare.  
 Se mamma vostra poi mi volesse bene  
-con voi mi lasciaria fin’a domani.*
+con voi mi lascerebbe fino a domani.*
 
 
 # 64
@@ -1419,7 +1419,7 @@ io addosso a te mi ci vorrei avvinghiare.
 Tu mi diresti: làsseme, restina,  
 la messa è uscita e non mi fai arrivare.  
 — Tanto ti lascio a te, nennella mia,  
-quando m’hai detto che mi torni a amare.*
+quando m’hai detto che mi torni ad amare.*
 
 
 # 66
@@ -1476,9 +1476,9 @@ Nun ge serve che faie lu saglia saglia ,
 Quanto chiù 'ncoppa vaie chiù butte piglie.
 
 *Potessi fare come fa la quaglia:  
-si posa al suolo e si piglia i suoi gusti.  
+si posa al suolo e i suoi gusti si piglia.  
 Il cacciatore ci va a farle la caccia  
-e dice al cane: — Tu prendila, forza!  
+e dice al cane: — Prendila, forza!  
 Torna il cane al padrone, ma... senza quaglia:  
 e il cacciatore collera si piglia!  
 Non serve far tutto questo sagli sagli:  
@@ -1498,9 +1498,9 @@ A do' è zi' munacella, ca n' 'a sento?
 
 *Zi' monacella mia, con questo manto pinto  
 tu dici a tutti che vuoi far la santa!  
-E poi di anni ce n'hai all'improvviso venti:  
-— Voglio il maritiello, tenetevi 'sto manto.  
-Io vo' farmi una scala di rami leggeri:  
-lo voglio scalar per bene 'sto convento,  
+E poi di anni ne hai all'improvviso venti:  
+— Voglio il maritiello, tenetevi questo manto.  
+Io voglio farmi una scala di rami leggeri:  
+lo voglio scalar per bene questo convento,  
 lo voglio scalare da fuori e da dentro.  
 Dov'è zi' monacella mia, ché non la sento?*

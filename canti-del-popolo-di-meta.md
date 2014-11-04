@@ -53,14 +53,14 @@ e se l’hai promesso a un altro, non mancare.*
 
 # 2
 
-&mdash; Aggio saputo ca la morta vene :  
-Tutte li bbelle se li vo' pigliare.  
-Tu che si' bella mièttete 'mpenziere :  
-Chisti bbellizz' a chi li buò' lassare?  
-Tu lassarill' a chi te ge vo' bene ,  
-Si è pe' me, i' nun te voglio male.  
-&mdash; Chiù priest' 'i lassari' a lu turreno ,  
-Pe' n' 'i lassar' a te, core de cane.
+— Aggio saputo ca la morta vene:  
+Tutte li bbelle se li vo’ pigliare.  
+Tu che si’ bella mièttete ’mpenziere:  
+Chisti bbellizz’ a chi li buò’ lassare?  
+Tu lassarill’ a chi te ge vo’ bene,  
+Si è pe’ me, i’ nun te voglio male.  
+— Chiù priest’ ’i lassari’ a lu turreno,  
+Pe’ n’ ’i lassar’ a te, core de cane.
 
 *— M’hanno detto che viene la morte  
 per pigliarsi le donne più belle.  

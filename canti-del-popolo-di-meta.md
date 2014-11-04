@@ -32,20 +32,20 @@ CANZUNE
 
 # 1
 
-'A bella mia se chiamma Matalena  
-M' ha fatto peniäre 'n anno sano,  
-Cu' na mana me chiamm' e dice : viene ;  
-Cu 'n' àuta po' da me se n' alluntana.  
-Lèrat' 'a fantasia ca 'ncapa tiene ,  
-Duna 'stu cor' a chi prummiso l'haie .  
-Si l' haie prummis' a me, tu tiene tiene ;  
-Si l' haie prummis' a 'n ato, nu' mancare.
+’A bella mia se chiamma Matalena  
+M’ ha fatto peniäre ’n anno sano,  
+Cu’ na mana me chiamm’ e dice: viene;  
+Cu ’n’ àuta po’ da me se n’ alluntana.  
+Lèrat’ 'a fantasia ca ’ncapa tiene,  
+Duna ’stu cor’ a chi prummiso l’ haie.  
+Si l’ haie prummis’ a me, tu tiene tiene;  
+Si l’ haie prummis’ a ’n ato, nu’ mancare.
 
 *La bella mia si chiama Maddalena;  
-un anno sano m’ha fatto penare.  
-E con un mano mi fa cenno e dice: vieni!  
-e con l’altra mano mi spinge lontano.  
-Con ‘sti capricci basta: che ci hai in testa?  
+un anno intero m’ha fatto penare.  
+Con una mano mi fa cenno e dice: vieni!  
+e poi con l’altra mi tiene lontano.  
+Basta con i capricci: cos’hai in testa?  
 Il tuo cuore dallo a chi glie l’hai promesso.  
 E se l’hai promesso a me, tienici fede;  
 e se l’hai promesso a un altro, non mancare.*

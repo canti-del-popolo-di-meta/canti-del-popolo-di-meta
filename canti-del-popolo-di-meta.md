@@ -20,21 +20,6 @@ quanto di greca umanità ci fosse in noi
 quanto di disumano in Grecia*
 
 
-DEDICA DEL CURATORE
--------------------
-Al chiarissimo  
-Comm.re Giulio Minervini  
-letterato ed archeologo illustre  
-che  
-al profondo sapere  
-unisce  
-impareggiabile bontà di cuore  
-questa raccolta di canti popolari  
-in attestato di gratitudine  
-offre  
-L.M.D.C.
-
-
 AVVERTENZA DEL CURATORE
 -----------------------
 Assai di buon grado son venuto nel divisamento di metter fuori questi pochi canti del popolo di Meta (Piano di Sorrento), perché mi va per l'animo la speranza che essi abbiano a riescire accetti e forse un cotal poco utili agli amatori degli studii dialettali. Come il lettore scorgerà di leggieri, in questi canti ribocca l'affetto e il sentimento; il verso è per lo più, scorrevole e dolce, e non mancano qua e là pensieri nobili delicati, non disgiunti da una certa semplicità che li rende ancora più belli. Solo, ad agevolarne l'intelligenza letterale a coloro che son poco pratici dei vernacoli meridionali , ho apposte , quando lo richiedeva il bisogno , alquante note dichiarative ai canti medesimi.

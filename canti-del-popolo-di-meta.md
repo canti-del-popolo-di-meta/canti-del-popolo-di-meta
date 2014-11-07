@@ -74,22 +74,22 @@ per non lasciarle a te, cuore di cane.*
 
 # 3
 
-Aggio saputo ca si' fatta santa ,  
+Aggio saputo ca si’ fatta santa,  
 A la ghièsia ge vaie spissamente.  
-'Sta curunella che purtat' avante ,  
-Ge la purtate pe' 'ngannà' li ggente.  
-M' haie 'ngannat' a me, pòver' amante ,  
-Cussì te pòzzano ingannà' li tuoie parente.  
-Chesto te dic' a te, da oggi avante ,  
-Troppa folla ge truov' a lu cunvento.
+’Sta curunella che purtat’ avante,  
+Ge la purtate pe’ ’ngannà’ li ggente.  
+M’ haie ’ngannat’ a me, pòver’ amante,  
+Cussì te pòzzano ingannà’ li tuoie parente.  
+Chesto te dic’ a te, da oggi avante,  
+Troppa folla ge truov’ a lu cunvento.
 
-*Ce l’ho saputo che sei fatta santa;  
-pure alla chiesa ci vai, spessamente.  
-'Sta coronella, neh, che porti avanti,  
+*Ho saputo che ti sei fatta santa;  
+pure alla chiesa vai, assiduamente.  
+La coroncina, neh, che porti avanti,  
 tu ce la porti a inganno della gente.  
-A me tu m’hai ingannato, a ‘nu povero amante:  
+A me tu m’hai ingannato, a me povero amante:  
 così ti possano ingannare i tuoi parenti.  
-Ti dico questo, a te, d’ora in avanti:  
+Ti dico questo, a te: d’ora in avanti  
 troppa folla ci trovi a quel convento.*
 
 

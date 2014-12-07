@@ -182,23 +182,23 @@ tanto la bella mia ha cambiato amore.*
 
 # 9
 
-Bella che stat' a 'st' àsteco schianato ,  
-'Sti bionne capelluzze v' asciuglite.  
-Int' a 'na còncua r' acqua li llavate.  
-Chiù bionne ca n' è l' oro li ffacite.  
-Quann' a 'sta spatelluzza li vvutate ,  
+Bella che stat’ a ’st’ àsteco schianato,  
+’Sti bionne capelluzze v’ asciuglite.  
+Int’ a ’na còncua r’ acqua li llavate.  
+Chiù bionne ca n’ è l’ oro li ffacite.  
+Quann’ a ’sta spatelluzza li vvutate,  
 Chiù ghianca e russulella ve facite.  
-Po' li spalluzz' a lu sole vutate ,  
-Li ragge de lu sole 'ntrattenite.  
-Quann' a 'sta fenestella v'affacciate ,  
-Me ne tirate cu' la calamita.
+Po’ li spalluzz’ a lu sole vutate,  
+Li ragge de lu sole ’ntrattenite.  
+Quann’ a ’sta fenestella v’affacciate,  
+Me ne tirate cu’ la calamita.
 
 *Da quest’altana, bella, vi mostrate:  
 i biondi capellucci vi sciogliete.  
 Poi li lavate a una conchetta d’acqua  
-e ve li fate biondi più che l’oro.  
+e biondi più che l’oro ve li fate.  
 Quando ve li avvolgete alla spadina  
-vi fate ancor più bianca e vermiglietta.  
+più bianca e vermiglietta voi vi fate.  
 Poi voltate le spallucce al sole  
 e del sole i raggi catturate.  
 Quando alla finestrella v’affacciate  

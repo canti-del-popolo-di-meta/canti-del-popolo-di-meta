@@ -560,22 +560,22 @@ dove vedi andare in giro spesso il lupo.*
 
 # 27
 
-I' te salut' a te , bianco palazzo ;  
-Lu masto che gi ha data tant' autezza.  
-I' saluto cuscin' e matarazze ,  
-A do' se riposa la vosta bellezza.  
-Da 'stu curpetto ne vurria nu lazzo ,  
-Nu capelluzzo da 'sti bbionne trezze  
-Preia lu cielo t' avess' int' a 'sti brazze ;  
-Me ne vurria murì' de cuntentezza.
+I’ te salut’ a te, bianco palazzo;  
+Lu masto che gi ha data tant’ autezza.  
+I’ saluto cuscin’ e matarazze,  
+A do’ se riposa la vosta bellezza.  
+Da ’stu curpetto ne vurria nu lazzo,  
+Nu capelluzzo da ’sti bbionne trezze  
+Preia lu cielo t’ avess' int’ a ’sti brazze;  
+Me ne vurria murì’ de cuntentezza.
 
 *Io ti saluto a te, bianco palazzo;  
 l’artefice t’ha dato tant’altezza!  
 Io vi saluto a voi, cuscini e materassi  
 ove riposa la vostra bellezza.  
 Del tuo corpetto ne vorrei un nastro,  
-un capello soltanto di ‘ste trecce.  
-Voglia il cielo t’avessi in queste braccia:  
+solo un capello delle bionde trecce!  
+Voglia il cielo t’avessi tra le braccia:  
 me ne vorrei morir di contentezza.*
 
 

@@ -661,19 +661,19 @@ quando mi prendo piacere con voi.*
 
 # 32
 
-Mamma, che de fìgliet' haie paura ,  
+Mamma, che de fìgliet’ haie paura,  
 Voglio vedere si la saie guardare.  
-Carrie pret' e fràveche li mmura ,  
-'Mmocc' a la porta toia 'na torra faie ;  
-Po' la 'nzierre cau sette mascature ,  
-Comm' a 'na casciulella de denare.  
+Carrie pret’ e fràveche li mmura,  
+’Mmocc’ a la porta toia na torra faie;  
+Po’ la ’nzierre cu sette mascature,  
+Comm’ a ’na casciulella de denare.  
 Si qua' ghiuorno me tenta la fortura  
-Scasso li pporte e la veng' a truvare.
+Scasso li pporte e la veng’ a truvare.
 
 *Mamma, che di tua figlia hai paura,  
 voglio vedere se te la sai guardare.  
 Disloca macigni, fabbrica le mura,  
-ergile una torre davanti alla porta.  
+davanti alla porta ergile una torre.  
 Serrala poi con sette serrature  
 come una cassa piena di tesori.  
 Ma se qualche giorno mi tenta la sorte  

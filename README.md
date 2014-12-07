@@ -965,23 +965,23 @@ ché quanti più ne cerco, di buchi, più ne trovo.*
 
 # 46
 
-Nu iuorno stevo cu' li mieie penziere ,  
-E dinto san Francisco m' arorava.  
-Diceva paternuost' e miserere ,  
-Comm' 'u sòlito mio soleva fare.  
-Scappa la lampa e rompe la lumera ,  
-I' stev' 'a sott' e l' ebbe da pavare.  
-Vi' quant' è granne la fortura mea:  
-I' vaco pe' fà' buon' e faccio male.
+Nu iuorno stevo cu’ li mieie penziere,  
+E dinto san Francisco m’ arorava.  
+Diceva paternuost’ e miserere,  
+Comm’ ’u sòlito mio soleva fare.  
+Scappa la lampa e rompe la lumera,  
+I’ stev’ ’a sott’ e l’ ebbe da pavare.  
+Vi’ quant’ è granne la fortura mea:  
+I’ vaco pe’ fà' buon’ e faccio male.
 
 *Io stavo un giorno con i miei pensieri,  
 a san Francesco, e tra me e me pregavo.  
 Dicevo paternostri e misereri  
 come al solito mio io soglio fare.  
 Scappa la lampada e se ne svelle il lume:  
-e io che stavo sotto l'ebbi da pagare.  
-Vedete quant'è grande la fortuna mia:  
-voglio far bene e scappo a fare male!*
+e io che stavo sotto l’ebbi da pagare.  
+Vedete quant’è grande la fortuna mia:  
+voglio far bene, finisco a fare male!*
 
 
 # 47

@@ -205,7 +205,7 @@ Quando alla finestrella v’affacciate
 me ne tirate con la calamita.*
 
 
-#10
+# 10
 
 Bella figliola, nun t’ arde lu core,  
 Quanno la sera me siente passare?  

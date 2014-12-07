@@ -1307,16 +1307,16 @@ cinquecent’anni con nennella bella.*
 
 # 62
 
-Uocchie nerill' e core de diamante ,  
-Comme te vuò' levare de 'sta mente !  
-Sòngheno li vicine che tiene accanto :  
-M' hanno mannato a fà' lu tradimento.  
-I' voglio prïà Di' e tutte li sante.  
-Che me levàsser' 'a 'stu fuoc' ardente.  
-Si 'st' uocchie mie schiòppen' a lu chianto,  
-Ge vonno maccator' ogne momento.
+Uocchie nerill’ e core de diamante,  
+Comme te vuò’ levare de ’sta mente!  
+Sòngheno li vicine che tiene accanto:  
+M’ hanno mannato a fà’ lu tradimento.  
+I’ voglio prïà Di’ e tutte li sante.  
+Che me levàsser’ ’a ’stu fuoc’ ardente.  
+Si ’st’ uocchie mie schiòppen’ a lu chianto,  
+Ge vonno maccator’ ogne momento.
 
-*Dolci occhi neri e cuore di diamante  
+*Dolci occhi neri e cuore di diamante,  
 come mi ti cancello dalla mente?  
 Son quei vicini che ti tieni accanto  
 che m’han fatto di nascosto il tradimento.  

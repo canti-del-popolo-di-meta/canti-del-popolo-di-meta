@@ -1328,20 +1328,20 @@ che serve ch’io li asciughi ogni momento?*
 
 # 63
 
-Ve manno cientomìlia bone sere ,  
-Ve ge le mann' a la napulitana.  
-Tu scinn' e miette l' uogli' a li ccannele ,  
-Che spassà' ge vulimino fin' a dimane.  
-Si pe' sciorta lu suonno te vene ,  
-Comme te vene t' 'u fai' a passare.  
-Si mamma toia me volesse bene ,  
-Cu' buie me lassarria fin' a dimane.
+Ve manno cientomìlia bone sere,  
+Ve ge le mann’ a la napulitana.  
+Tu scinn’ e miette l’ uogli’ a li ccannele,  
+Che spassà’ ge vulimino fin’ a dimane.  
+Si pe’ sciorta lu suonno te vene,  
+Comme te vene t’ ’u fai’ a passare.  
+Si mamma toia me volesse bene,  
+Cu’ buie me lassarria fin’ a dimane.
 
 *Vi mando centomila buone sere,  
 ve ce le mando alla napoletana!  
 Tu scendi e metti l’olio alle candele:  
 ché ci vogliamo spassare oggi e domani.  
-Ti venisse sonno, per caso? E se ti viene  
+Ti venisse sonno, per caso? E se ti viene,  
 come ti viene così lo fai passare.  
 Se mamma vostra poi mi volesse bene  
 con voi mi lasciaria fin’a domani.*

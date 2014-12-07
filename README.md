@@ -986,22 +986,22 @@ voglio far bene, finisco a fare male!*
 
 # 47
 
-Nun aggio comme fà' pe' te parlare :  
+Nun aggio comme fà’ pe’ te parlare:  
 Vestire me ge voglio cappuccino.  
-'Mmocc' a la porta veng' a tuzzuare :  
+’Mmocc’ a la porta veng’ a tuzzuare:  
 Famme la caretà, nennella mia.  
-Chella me disse : n' aggio che te dare ,  
-Aggio fenuto lu ppan' e lu vino ,  
-Lu lietto è fatto, si te vuò' cuccare.  
-&mdash; Chesto ieva truvanno, nenna mia.
+Chella me disse: n’ aggio che te dare,  
+Aggio fenuto lu ppan’ e lu vino,  
+Lu lietto è fatto, si te vuò’ cuccare.  
+— Chesto ieva truvanno, nenna mia.
 
 *Ma come faccio per poterti parlare?  
 Mi voglio vestire da pio cappuccino  
-e alla tua porta poi vengo a suonare:  
+e alla tua porta poi vengo a bussare:  
 — Fammi la carità, figliola mia.  
-E lei mi dice: — Non ho che darti.  
+E lei mi dice: Non so che darti...  
 Mi son finiti il pane ed il vino.  
-Ma… c’è il letto fatto, se ti vuoi coricare.  
+C’è il letto fatto, se ti vuoi coricare.  
 — Io altro non cercavo, nenna mia!*
 
 

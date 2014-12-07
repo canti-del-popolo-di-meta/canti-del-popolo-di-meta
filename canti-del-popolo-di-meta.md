@@ -682,14 +682,14 @@ io scasso le porte e la vengo a trovare.*
 
 # 33
 
-Mamm', 'u scurpione m' ha muzzecato :  
-E m' have fatta 'na 'rossa feruta.  
-Sapisse lu relore che m' ha dato ,  
-Senza cacciare sango m' ha feruta.  
-A du lu 'nciarmatore ge so' stato ;  
+Mamm’, ’u scurpione m’ ha muzzecato:  
+E m’ have fatta ’na ’rossa feruta.  
+Sapisse lu relore che m’ ha dato,  
+Senza cacciare sango m’ ha feruta.  
+A du lu ’nciarmatore ge so’ stato;  
 Nisciuna mericina gi ha pututo.  
-Sentite la risposta ca m' ha dato :  
-Fatte sanare da chi t' ha feruta.
+Sentite la risposta ca m’ ha dato:  
+Fatte sanare da chi t’ ha feruta.
 
 *Madre, lo scorpione mi ha morsicata.  
 Tu non sai la ferita che mi fece.  
@@ -697,7 +697,7 @@ Tu non sai il dolore che mi diede.
 Madre, senza spargere sangue mi ha ferita.  
 Dall’inciarmatore sì, ci sono andata.  
 Medicine? Nessuna ci ha potuto.  
-Sentite la risposta che mi ha data:  
+Sentite la risposta che mi ha dato:  
 fatti sanare da chi ti ci ha ferita.*
 
 

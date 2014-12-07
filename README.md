@@ -162,13 +162,13 @@ va’ da lei spesso e portale più amore.*
 # 8
 
 Arevo piccerillo te piantaie  
-E t' aracquaie cu' lu mio surore.  
-Vene nu vient' e ne vuttaie nu rammo ,  
-La verde fronna tramutaie culore ;  
-Lu fruttu roce se ge fice amaro ,  
-A do' è ghiuto lu rorge sapore ?  
-Viènece, mort', e tròvece riparo ,  
-Mo che la bella mi' ha cagnat' amore.
+E t’ aracquaie cu’ lu mio surore.  
+Vene nu vient’ e ne vuttaie nu rammo,  
+La verde fronna tramutaie culore;  
+Lu fruttu roce se ge fice amaro,  
+A do’ è ghiuto lu rorge sapore?  
+Viènece, mort’, e tròvece riparo,  
+Mo che la bella mi’ ha cagnat’ amore.
 
 *Albero pargoletto ti piantai  
 ti innaffiai con il mio sudore.  

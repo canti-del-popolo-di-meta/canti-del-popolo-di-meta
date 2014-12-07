@@ -350,14 +350,14 @@ perché ci tieni chiusa a nenna mia.*
 
 # 17
 
-Figliola, ca si' bell' e nun abballe ,  
-Ge tiene nu pertus' a la vunnella.  
-Vaie chiù sotto , ge truove 'na palla  
+Figliola, ca si’ bell’ e nun abballe,  
+Ge tiene nu pertus’ a la vunnella.  
+Vaie chiù sotto, ge truove 'na palla  
 Ge vanno trenta ròtue de pelle.  
-De stoppa ge ne vonno dece balle ,  
+De stoppa ge ne vonno dece balle,  
 De pece ge ne vole nu vasciello.  
-Si te la vuò' sanare chesta palla ,  
-Ge vo' 'na botta de lu mio martiello.
+Si te la vuò’ sanare chesta palla,  
+Ge vo’ ’na botta de lu mio martiello.
 
 *Figliola, che sei bella ma non balli:  
 attenta, ché hai uno sgarro nella gonna!  

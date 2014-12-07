@@ -944,23 +944,23 @@ neanche la pelle riportavo a casa.*
 
 # 45
 
-Nu iuorno me 'mparai caudararo ,  
-E chest' è la megli' arte che me trovo.  
-Comme ne iette pe' dint' a Lustrano ,  
+Nu iuorno me ’mparai caudararo’,  
+E chest’ è la megli’ arte che me trovo.  
+Comme ne iette pe’ dint’ a Lustrano,  
 Li ccaudare vecchie li faccio nove.  
-Vene 'na ronna cu' a sartània 'mmano :  
-Siè masto mio , conciamìa bona.  
-I' ne vurria vuttare quanno maie :  
+Vene ’na ronna cu’ a sartània ’mmano:  
+Siè masto mio, conciamìa bona.  
+I’ ne vurria vuttare quanno maie:  
 Quanto chiù cerco, chiù pertòsere trovo.
 
 *Un giorno mi imparai calderaio: e questa  
 è la meglio arte che mi trovo.  
 Ecco che me ne andavo per Lustrano:  
-caldaie vecchie ve le metto a nuovo!  
+— Caldaie vecchie ve le metto a nuovo!  
 Viene una donna col tegame in mano:  
-sie’ mastro mio, conciamela buona!  
+— Sie’ mastro mio, conciamela buona!  
 Io ne vorrei sgranare a più non posso,  
-ché quanti più ne cerco, di buchi più ne trovo.*
+ché quanti più ne cerco, di buchi, più ne trovo.*
 
 
 # 46

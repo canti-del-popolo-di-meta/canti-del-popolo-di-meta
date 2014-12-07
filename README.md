@@ -371,20 +371,20 @@ d’uopo è una botta del mio gran martello!*
 
 # 18
 
-Figliola, dàtte vot' a 'sta ienesta :  
-A tiempo ca t' amav' i' era pazzo.  
+Figliola, dàtte vot’ a ’sta ienesta:  
+A tiempo ca t’ amav’ i’ era pazzo.  
 Màmmeta va agghiustenno parentezza  
-Tu nun zi' bona manco pe' vaiassa.  
-Si nun tiene crianz' i' te ne 'mmezzo ;  
-Si nun parle poco abbusche 'faccia.  
-Nun piglia tanta botte 'na galessa.  
-Quanta cièfere piglio int' a 'sta nassa.
+Tu nun zi’ bona manco pe’ vaiassa.  
+Si nun tiene crianz’ i’ te ne ’mmezzo;  
+Si nun parle poco abbusche ’faccia.  
+Nun piglia tanta botte ’na galessa.  
+Quanta cièfere piglio int’ a ’sta nassa.
 
-*Figliola, e appènditici a 'sta ginestra!  
-Al tempo che t'amavo io ero pazzo.  
-Màmmeta parla d'imbastire parentela:  
+*Figliola, e appènditici a ’sta ginestra!  
+Al tempo che t’amavo io ero pazzo.  
+Màmmeta parla d’imbastire parentela:  
 tu non sei buona neppure a far da serva.  
-Se non tieni creanza io te ne imparo:  
+Se non sai di creanza io te ne imparo:  
 meglio che parli poco o tu ne buschi!  
 Non prende un calesse tante botte  
 quanti cefali ci vanno nella nassa.*

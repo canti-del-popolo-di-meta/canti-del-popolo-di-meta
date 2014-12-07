@@ -619,14 +619,14 @@ io un’altra amante tengo e tu ci schiatti.*
 
 # 30
 
-La tòrtora si perde la cumpagna ,  
-Tuttu lu iuorno sta malancunosa ;  
-Po' trova l' acqua fresca e se gi abbagna ,  
-E se lu beve tutta 'ntruvulosa.  
-Po' se ne va a nu pizzo de muntagna ,  
+La tòrtora si perde la cumpagna,  
+Tuttu lu iuorno sta malancunosa;  
+Po’ trova l’ acqua fresca e se gi abbagna,  
+E se lu beve tutta ’ntruvulosa.  
+Po se ne va a nu pizzo de muntagna,  
 Là se li chiagne li malanne suoie.  
-Cussì è la nenna quanno se scumpagna ,  
-Perde li guste , li spass' e li suone.  
+Cussì è la nenna quanno se scumpagna,  
+Perde li guste, li spass’ e li suone.  
 
 *La tortora se perde la compagna  
 un giorno intero se ne sta intristita.  

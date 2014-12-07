@@ -1159,23 +1159,23 @@ coglievo noci persiche e meloni.*
 
 # 55
 
-Sera passai' e tu , bella , durmive.  
-Tutto 'stu giardeniello cammennaie :  
-Dinto ge steva 'na fica ientile ,  
-I' pe' crianza mia nu' la tuccaie.  
-Po' te faciette 'n' ata curtesia ,  
-Stive scuvert' e i 'te cummigliaie.  
-'E una cosa ge restaie currivo :  
-Fuoco allummat' e nu' me scaglientaie!
+Sera passai’ e tu, bella, durmive.  
+Tutto ’stu giardeniello cammennaie:  
+Dinto ge steva ’na fica ientile,  
+I’ pe’ crianza mia nu’ la tuccaie.  
+Po’ te faciette ’n’ ata curtesia,  
+Stive scuvert’ e i ’te cummigliaie.  
+’E una cosa ge restaie currivo:  
+Fuoco allummat’ e nu’ me scaglientaie!
 
 *Di sera passavo e tu, bella, dormivi.  
 Io in tutto il tuo giardino camminai.  
 E in mezzo al giardino un albero pregiato,  
 ma per scrupolo mio me ne scansai.  
-Con te fui più cortese ancora:  
+Con te poi fui più cortese ancora:  
 ti eri scoperta e io ti ricoprii.  
 Di una cosa soltanto ci rimasi male:  
-il fuoco era acceso e io non mi scaldai.*
+col fuoco acceso io non mi scaldai.*
 
 
 # 56

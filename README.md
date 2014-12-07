@@ -1007,19 +1007,19 @@ C’è il letto fatto, se ti vuoi coricare.
 
 # 48
 
-Nun ze pozza palazzo fravecare ,  
-Si n' accummenza da li pperamenta ;  
-Nun ze pozza la terra sgariare ,  
-Si nun ge stanno li sett' alimente ;  
-Nun ze pozz' a la ghièsia prerecare ,  
-Si nun ge sta nu pòpolo d' aggente ;  
-A lietto frisco nun te ì' a cuccare ,  
-Si nun ge sta 'na nennella valente.
+Nun ze pozza palazzo fravecare,  
+Si n’ accummenza da li pperamenta;  
+Nun ze pozza la terra sgariare,  
+Si nun ge stanno li sett’ alimente;  
+Nun ze pozz’ a la ghièsia prerecare,  
+Si nun ge sta nu pòpolo d’ aggente;  
+A lietto frisco nun te ì’ a cuccare,  
+Si nun ge sta ’na nennella valente.
 
 *Palazzo nuovo non si può fabbricare  
 se non s’inizia dalle fondamenta.  
-E chi saprebbe arare la terra  
-se gli vengon meno i sette alimenti?  
+Chi saprebbe arare la terra  
+se vengono meno i sette alimenti?  
 Alla chiesa, poi, come predicare  
 se manca il gran concorso della gente?  
 In letto fresco non ti ci coricare:  

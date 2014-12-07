@@ -1029,21 +1029,21 @@ non ti ci trovi una nenna valente!*
 
 # 49
 
-O mamma, mamma, Francischiello voglio :  
-Francischiello vogli' e Francischiello me piglio.  
-Quanno iamm' a la ghièsia a dire : voglio ,  
-Tutte dui' a 'na mamma parimmo figlie.  
-lss' è bellillo e i' so' dellicata ,  
-Simmo passate pe' 'n' accia de seta ,  
-I' pe' dispietto me gi 'o mecc' a lato :  
-Chi nun gi 'o pò vedè' che schiatt' e crepa.
+O mamma, mamma, Francischiello voglio:  
+Francischiello vogli’ e Francischiello me piglio.  
+Quanno iamm’ a la ghièsia a dire: voglio,  
+Tutte dui’ a ’na mamma parimmo figlie.  
+Iss’ è bellillo e i’ so’ dellicata,  
+Simmo passate pe’ ’n’ accia de seta,  
+I’ pe’ dispietto me gi ’o mecc’ a lato:  
+Chi nun gi ’o pò vedè’ che schiatt’ e crepa.
 
 *O mamma, mamma!  
-Io a Francischiello voglio.  
-Io a Francischiello voglio  
-e a Francischiello mi piglio.  
+Io Francischiello voglio.  
+Io Francischiello voglio  
+e Francischiello mi piglio.  
 E quando siamo all’altare  
-a dire «Sì, voglio!»  
+a dire: Sì, voglio!.  
 o non ci prenderanno forse per gemelli?  
 Lui è caruccetto e io delicatella:  
 siamo tessuti con la stessa seta.  

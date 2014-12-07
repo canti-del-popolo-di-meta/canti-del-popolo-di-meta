@@ -267,23 +267,23 @@ chiamo amici e parenti e non ne trovo.*
 
 # 12
 
-Ch' addore de garuòfene che sento!  
-'Mpiett' a nennella mia ge n' è 'na schianta.  
-Chiste nun zo' garuòfene nè niente ,  
-È 'u sciat' 'i nenna mia ch' addora tanto.  
-Si quaccheruno me la tene mente ,    
-Ge lu faccio pigliare l' uoglio santo.  
-E si màmmeta toia n' è cuntenta ,  
-Tu munacell' e i' mònaco santo.
+Ch’ addore de garuòfene che sento!  
+’Mpiett’ a nennella mia ge n’ è ’na schianta.  
+Chiste nun zo’ garuòfene né niente,  
+È ’u sciat’ ’i nenna mia ch’ addora tanto.  
+Si quaccheruno me la tene mente,    
+Ge lu faccio pigliare l’ uoglio santo.  
+E si màmmeta toia n’ è cuntenta ,  
+Tu munacell’ e i’ mònaco santo.
 
-*Che odore di garofani che sento,  
+*Che odore di garofani che sento:  
 in petto a nenna mia ce n’è una schianta!  
-Questi non sono né garofani, né niente:  
+Questi non son garofani, né altro:  
 è respiro di nenna mia che odora tanto!  
 Se qualcuno me la guarda con la voglia  
 glie lo faccio pigliare l’olio santo!  
 E se mamma tua di noi non è contenta  
-tu ti fai monacella e io monaco santo.*
+tu ti fai monachella e io monaco santo.*
 
 
 # 13

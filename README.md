@@ -1412,18 +1412,18 @@ tu sola agli occhi miei sei la più bella.*
 
 # 67
 
-Vurrei addeventare nu picciuòttuo ,  
-Cu' 'na langella 'ncuollo vennenn' acqua.  
-Me ne iarria pe' 'sti palazzuòttue :  
-Belle fèmmene mie , chi vo' acqua?  
-Se vota 'na figliola da là 'ncoppa :  
-Chi è 'stu piccerillo che venn' acqua?   
-I' me voto cu' parol' accorte :  
-So' làcreme d' amor' e nun è acqua!
+Vurrei addeventare nu picciuòttuo,  
+Cu’ ’na langella ’ncuollo vennenn’ acqua.  
+Me ne iarria pe’ ’sti palazzuòttue:  
+Belle fèmmene mie, chi vo’ acqua?  
+Se vota ’na figliola da là ’ncoppa:  
+Chi è ’stu piccerillo che venn’ acqua?   
+I’ me voto cu’ parol’ accorte:  
+So’ làcreme d’ amor’ e nun è acqua!
 
 *Vorrei diventare un bel picciotto  
 con un orcetto in spalla a vender acqua.  
-Me ne andrei in giro per ‘sti palazzotti:  
+Me ne andrei in giro per ’sti palazzotti:  
 — Belle signore, chi ne vuol acqua?  
 Si volta una figliola alla finestra:  
 — Chi è questo piccino a vender acqua?  

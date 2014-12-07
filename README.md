@@ -1138,16 +1138,16 @@ quest’è la gatta che sempre ci trase.*
 
 # 54
 
-Sera passaie pe' dinto a nu vico ,  
-Vidde 'na fica càrreca de prune.  
-Stenno la mana pe' la scutuare :  
-Cadèvano percoche tanto l' una!  
-S' addona lu patrone da luntano :  
-Sta attiento 'un me scarpise 'sti mellune.  
-I' cu' la scusa de li mmulignane ,  
-Cuglieva nucepèrzech' e mellune.
+Sera passaie pe’ dinto a nu vico,  
+Vidde ’na fica càrreca de prune.  
+Stenno la mana pe’ la scutuare:  
+Cadèvano percoche tanto l’ una!  
+S’ addona lu patrone da luntano :  
+Sta attiento ’un me scarpise ’sti mellune.  
+I’ cu’ la scusa de li mmulignane,  
+Cuglieva nucepèrzech’ e mellune.
 
-*Sera passai nel ventre di un vico;  
+*Di sera passai nel ventre di un vico:  
 vedo quest’albero colmo di frutti.  
 Stendo le mani, lo scuoto, ne cadono  
 pesche più grandi di meloni!  

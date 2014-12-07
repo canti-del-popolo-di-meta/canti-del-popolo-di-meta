@@ -1344,7 +1344,7 @@ ché ci vogliamo spassare oggi e domani.
 Ti venisse sonno, per caso? E se ti viene,  
 come ti viene così lo fai passare.  
 Se mamma vostra poi mi volesse bene  
-con voi mi lasciaria fin’a domani.*
+con voi mi lasciaria fino a domani.*
 
 
 # 64

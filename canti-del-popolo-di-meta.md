@@ -598,14 +598,14 @@ solo nennella mia è la più bella.*
 
 # 29
 
-La bella mia sta malat' a letto ,  
-Tene la mala pasca ca s' 'a vatte.  
-Se l' ha mangiate doie ialline cotte ,  
-S' ha rusecate l' ossa comm' a ghiatta ,  
-Se l' ha mangiate di' cuopp' 'e cunfiette ,  
-Ge l' ha asseccate di' puzzille d' acqua.  
-Tu te crerive 'i mi fà' rispietto :  
-I' 'n at' amante tengo e tu ge schiatte.
+La bella mia sta malat’ a letto,  
+Tene la mala pasca ca s’ ’a vatte.  
+Se l’ ha mangiate doie ialline cotte,  
+S’ ha rusecate l’ ossa comm’ a ghiatta,  
+Se l’ ha mangiate di’ cuopp’ ’e cunfiette’,  
+Ge l’ ha asseccate di’ puzzille d’ acqua.  
+Tu te crerive ’i mi fà’ rispietto:  
+I’ ’n at’ amante tengo e tu ge schiatte.
 
 *La bella mia sta malata a letto:  
 tiene la mala pasqua che la batte.  

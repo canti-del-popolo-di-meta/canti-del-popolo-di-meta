@@ -1180,14 +1180,14 @@ col fuoco acceso io non mi scaldai.*
 
 # 56
 
-Sia beneritto chi fece lu munno ,  
+Sia beneritto chi fece lu munno,  
 Chi ce lu fice lu sapette fare.  
-Face primma la nott' e po' lu iuorno ,  
-E lu sapette crèscer' e mancare.  
-Po' ge fice lu mare tuorno tuorno ,  
-Ge fice li vascielle pe' navegare :  
-E po' te fice a te , penta palomma ,  
-E te ge fice pe' me 'ncuïtare.
+Face primma la nott’ e po’ lu iuorno,  
+E lu sapette crèscer’ e mancare.  
+Po’ ge fice lu mare tuorno tuorno,  
+Ge fice li vascielle pe’ navegare:  
+E po’ te fice a te, penta palomma,  
+E te ge fice pe’ me ’ncuïtare.
 
 *Sia benedetto chi fabbricò il mondo,  
 ché chi lo fece sì che seppe fare!  

@@ -288,13 +288,13 @@ tu ti fai monachella e io monaco santo.*
 
 # 13
 
-Chi t' ha ditto ca n' aggio 'nnammurate ?  
+Chi t’ ha ditto ca n’ aggio ’nnammurate?  
 Sette ne tengo a lu cumanno mio.  
-Una la teng' a Massa e 'n' at' a Crape ,  
-'N' ata la teng' a la chiana de Vico,  
-'N' ata ne tengo 'ncopp' a Massaquana ,  
-'N' ata ne tengo 'ncopp' a Santu Vito ,  
-'N' ata me la teng' a lu mio lato :  
+Una la teng’ a Massa e ’n’ at’ a Crape,  
+’N’ ata la teng’ a la chiana de Vico,  
+’N’ ata ne tengo ’ncopp’ a Massaquana,  
+’N’ ata ne tengo ’ncopp’ a Santu Vito,  
+’N’ ata me la teng’ a lu mio lato:  
 A chella conto li ppatute mie.
 
 *Chi è venuto a dirti che non tengo innamorate?  

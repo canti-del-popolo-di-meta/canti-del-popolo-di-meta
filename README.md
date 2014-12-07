@@ -539,14 +539,14 @@ Passero vecchio in gabbia caduto.*
 
 # 26
 
-Iett' a Roma pe me fare Papa ,  
-E pe' la via addeventaie paputo.  
-Iette pe da nu muorz' a nu senape ,  
-'Mmocca me venne 'na cimma d' aruta.  
-Vuò' mettere lu pede a do' nun cape :  
-Là ge può sciulià' e te derrupe.  
-Si vuò' sapere a do' stanno li ccrape ,  
-A do' vide 'nturnià' spisso lu lupo.
+Iett’ a Roma pe me fare Papa,  
+E pe’ la via addeventaie paputo.  
+Iette pe da nu muorz’ a nu senape,  
+’Mmocca me venne ’na cimma d’ aruta.  
+Vuò’ mettere lu pede a do’ nun cape:  
+Là ge può sciulià’ e te derrupe.  
+Si vuò’ sapere a do’ stanno li ccrape,  
+A do’ vide ’nturnià’ spisso lu lupo.
 
 *A Roma andai per diventare Papa  
 ma per la via mi ritrovai papùto.  

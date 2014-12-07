@@ -292,22 +292,22 @@ a questa confido le pene mie d’amore.*
 # 14
 
 Dummèneca matina de li Pparme  
-Pe' me nu' fosse fatto maie iuorno!  
-Iett' a la ghièsia pe' purtà' la parma ,  
-Me li bedette ciento sbirr' attuorno.  
-I' le dicette : N' aggio fatto danno ,  
-N' aggi' acciso nisciun' a 'sti cuntuorne.  
-Da Nàpule è benuta la cunnanna :  
-De stà' cu' nenna mia nott' e ghiuorno.
+Pe’ me nu’ fosse fatto maie iuorno!  
+Iett’ a la ghièsia pe’ purtà’ la parma,  
+Me li bedette ciento sbirr’ attuorno.  
+I’ le dicette: N’ aggio fatto danno’,  
+N’ aggi’ acciso nisciun’ a 'sti cuntuorne.  
+Da Nàpule è benuta la cunnanna:  
+De stà’ cu’ nenna mia nott’ e ghiuorno.
 
 *Domenica mattina delle Palme  
 non si fosse mai per me levato giorno!  
 Alla chiesa andai, per portar la palma:  
 mi vidi almeno cento sbirri attorno.  
-Gli dissi: non ho fatto danno,  
-non ho ucciso nessuno a ‘ste contrade!  
+Gli dissi: Non ho fatto danno,  
+non ho ucciso nessuno a ’ste contrade!  
 Da Napoli è venuta la condanna:  
-stare con nenna mia la notte e ‘l giorno.*
+stare con nenna mia la notte e il giorno.*
 
 
 # 15

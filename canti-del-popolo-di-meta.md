@@ -119,21 +119,21 @@ dove la neve non si consuma mai.*
 
 # 6
 
-Amava 'na donna , se chiammav' Agnese ,  
-'N' ata n' amav' e se chiammava Rosa ,  
-'N' ata n' amav' e se chiammava Teresa ;  
+Amava ’na donna, se chiammav’ Agnese,  
+’N’ ata n’ amav’ e se chiammava Rosa,  
+’N’ ata n’ amav’ e se chiammava Teresa;  
 Sulo Teresa me dava quaccosa.  
-Corro nu iuorno cu' carrera tesa  
-Pe' vedè' 'st' auciello a do' s' aposa ;  
-Iette pe' dà' nu vas' a 'sta Teresa ,  
-E 'ncuollo me currett' Agnese e Rosa.
+Corro nu iuorno cu’ carrera tesa  
+Pe’ vedè’ ’st’ auciello a do’ s’ aposa;  
+Iette pe’ dà’ nu vas’ a ’sta Teresa,  
+E '’cuollo me currett’ Agnese e Rosa.
 
 *Amavo una donna: era il suo nome Agnese.  
 Ne amavo un’altra: le dicevan Rosa.  
-Un’altra ancora: si chiamava... Teresa.  
+Un’altra ancora: si chiamava Teresa.  
 Ma... solo Teresa mi dava qualcosa.  
 E un giorno corsi di carriera tesa  
-per vedere ‘st’uccello ove si posa.  
+per veder quest’uccello ove si posa.  
 E volli darle un bacio, alla Teresa:  
 non mi saltano addosso Agnese e Rosa?*
 

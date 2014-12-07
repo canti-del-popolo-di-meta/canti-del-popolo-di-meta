@@ -158,19 +158,19 @@ non mi saltano addosso Agnese e Rosa?*
 
 # 7
 
-'A primma vota che me cunfessaie ,  
-Me cunfessai' a nu prericatore.  
-La primma cosa che m' addimannaie ,  
-Me ge lu disse : Figlio , faie l' ammore?  
-I' ge disse : Patre , tu che ne saie?  
-&mdash; I' me ne vavo da lu 'ntenzione.  
-La penitènzi' a te te voglio dare :  
+’A primma vota che me cunfessaie,  
+Me cunfessai’ a nu prericatore.  
+La primma cosa che m’ addimannaie,  
+Me ge lu disse: Figlio, faie l’ ammore?  
+I’ ge disse: Patre, tu che ne saie?  
+— I’ me ne vavo da lu ’ntenzione.  
+La penitènzi’ a te te voglio dare:  
 Spisse va vance e pòrtece chiù amore.
 
 *La prima volta che mi confessai  
 mi confessai da un santo predicatore.  
-La prima cosa che mi addimandò,  
-mi disse: Figlio, fai all’amore?  
+La prima cosa che mi domandò,  
+mi disse: Figliolo, fai all’amore?  
 Io gli risposi: Padre, e che ne sai?  
 — Io conosco le tue intenzioni.  
 Una penitenza te la voglio dare:  

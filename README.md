@@ -1244,17 +1244,17 @@ mala cometa passa una volta l'anno.*
 
 # 59
 
-Songo venuto pe' te parlà' chiaro :  
-Si me vuò' dare fìglieta; che dice ?  
-A do' la trovo, l' abbraccio e la vaso ;  
-E po' te pavo lu danno che fice.  
-Tu a la corte vaie : a la corte vengo.  
-Cu' li recare m' accordo l' amice.  
-Tu te ne vaie cu' figlieta vasata ;  
-I' me ne vaco cuntento e felice.
+Songo venuto pe’ te parlà’ chiaro:  
+Si me vuò’ dare fìglieta; che dice?  
+A do’ la trovo, l’ abbraccio e la vaso;  
+E po’ te pavo lu danno che fice.  
+Tu a la corte vaie: a la corte vengo.  
+Cu’ li recare m’ accordo l’ amice.  
+Tu te ne vaie cu’ figlieta vasata;  
+I’ me ne vaco cuntento e felice.
 
 *Sono venuto per parlarti chiaro.  
-Vuoi darmela tua figlia? Che decidi?  
+Vuoi darmela tua figlia? Che ne pensi?  
 Dove la trovo me l’abbraccio e bacio;  
 poi il danno fatto — è inteso — te lo pago.  
 Parliamo franco, non tergiversiamo.  

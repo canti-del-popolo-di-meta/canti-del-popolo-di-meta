@@ -225,14 +225,14 @@ me ne tirate con la calamita.*
 
 #10
 
-Bella figliola , nun t' arde lu core ,  
-Quanno la sera me siente passare ?  
-Allumma la cannela e ghiesce fore :  
-Dincill' a mamma toia ca vuò' filare.  
-Si màmmeta te dice qua' parola  
-Dincillo tu ca dinto nu' può' stare :  
-Ge sta ninnillo mio da cà fare ,  
-Tutta de fuoco me sent' allummare.
+Bella figliola, nun t’ arde lu core,  
+Quanno la sera me siente passare?  
+Allumma la cannela e ghiesce fore:  
+Dincill’ a mamma toia ca vuò’ filare.  
+Si màmmeta te dice qua’ parola  
+Dincillo tu ca dinto nu’ può’ stare:  
+Ge sta ninnillo mio da cà fore,  
+Tutta de fuoco me sent’ allummare.
 
 *Bella figliola, non ti arde il cuore  
 quando la sera mi senti passare?  

@@ -766,23 +766,23 @@ mi porta all’orto a cogliere viole!*
 
 # 37
 
-Mìsero me! so' povero surdato ,  
-La mia lebertà l' aggio perduta.  
-Aggio mangiato pane de furzato ,  
-E acqua cu li vierm' aggio bevuta.  
-Mamm' e patre m' hann' abbannunato ,  
-Li megli amice mie m' hanno traruto.  
-Si lu cielo me scappa da surdato ,  
-Voglio fà' pace cu chi m'ha traruto.
+Mìsero me! so’ povero surdato,  
+La mia lebertà l’ aggio perduta.  
+Aggio mangiato pane de furzato,  
+E acqua cu li vierm’ aggio bevuta.  
+Mamm’ e patre m’ hann’ abbannunato,  
+Li megli amice mie m’ hanno traruto.  
+Si lu cielo me scappa da surdato,  
+Voglio fà’ pace cu chi m’ha traruto.
 
 *Misero me! Son povero soldato;  
 la mia libertà io l'ho perduta.  
 Ho mangiato pane di forzato  
 e acqua con i vermi ne ho bevuta.  
-Mamma e padre m'hanno abbandonato;  
-i meglio amici miei m'hanno tradito.  
+Mamma e padre m’hanno abbandonato;  
+i meglio amici miei m’hanno tradito.  
 Se il cielo me ne scampa da soldato  
-vo' far pace con lei che m'ha tradito.*
+voglio far pace con lei che m’ha tradito.*
 
 
 # 38

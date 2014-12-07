@@ -1096,14 +1096,14 @@ sto con la nera sorte, e non son morto.*
 
 # 52
 
-Se ne scenne lu sole e se fa notte ,  
-Chi me vo' bene stasera nu' vevo.  
-Lu surore me vene de la morte ,  
-Penzo che nott' è fatt' e nu' la vevo.  
-'Mmocc' a la porta lasso la risposta ;  
-Fenestella che nu' luce cannela ,  
-A tutte ve ge lass' 'a bona notte :  
-Pe' me nu' mancarrà la bona sera.
+Se ne scenne lu sole e se fa notte,  
+Chi me vo’ bene stasera nu’ vevo.  
+Lu surore me vene de la morte,  
+Penzo che nott’ è fatt’ e nu’ la vevo.  
+’Mmocc’ a la porta lasso la risposta;  
+Fenestella che nu’ luce cannela,  
+A tutte ve ge lass’ ’a bona notte:  
+Pe’ me nu’ mancarrà la bona sera.
 
 *Inclina il sole e si fa notte;  
 chi mi vuol bene stasera non vedo.  

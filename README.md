@@ -829,19 +829,19 @@ non patirei le pene che mi date.*
 
 # 40
 
-Nàpule bell' e Surriento cevile ,  
-Surriento me convene d' avantare.  
-A Surriento ge sta l' ària suttile ;  
-Chi sta malat' a Surriento se sana.  
-Si sta malata tanto bella mia ,  
-I' ge la porc' a Surrient' a sanare.
+Nàpule bell’ e Surriento cevile,  
+Surriento me convene d’ avantare.  
+A Surriento ge sta l’ ària suttile;  
+Chi sta malat’ a Surriento se sana.  
+Si sta malata tanto bella mia,  
+I’ ge la porc’ a Surrient’ a sanare.
 
 *Napoli bella e Sorrento civile;  
 Sorrento più mi giova di vantare.  
 A Sorrento c’è l’aria gentile;  
 chi sta malato là si può sanare.  
-Se sta malata un poco la mia bella  
-io a Sorrento ce la porto per guarire.*
+Se tanto sta malata la mia bella  
+a Sorrento la porto a rifiorire.*
 
 
 # 41

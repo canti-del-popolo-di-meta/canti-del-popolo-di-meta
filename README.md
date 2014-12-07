@@ -1286,14 +1286,14 @@ Io so l’amore come s’ha da fare.*
 
 # 61
 
-Tenga 'na famma che me mangiarria  
-Nàpule 'ntornïato de panelle  
-Tengo 'na sete che me vevarria  
-Castiellammare cu li ffuntanelle ;  
-Tengo nu passo che caniminarria  
-Caruotto, Puzzuchiano e Trasaella ;  
-Tengo nu suonno che m' addurmarria  
-Cincucient' anne cu' nennella bella.
+Tenga ’na famma che me mangiarria  
+Nàpule ’ntornïato de panelle  
+Tengo ’na sete che me vevarria  
+Castiellammare cu li ffuntanelle;  
+Tengo nu passo che caminarria  
+Caruotto, Puzzuchiano e Trasaella;  
+Tengo nu suonno che m’ addurmarria  
+Cincucient’ anne cu’ nennella bella.
 
 *Tengo una fame che mi mangerei  
 Napoli contornata di panelle.  

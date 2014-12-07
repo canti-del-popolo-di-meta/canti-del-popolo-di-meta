@@ -1391,14 +1391,14 @@ quando m’hai detto che mi torni a amare.*
 
 # 66
 
-Vurrì' addeventare nu muschillo ,  
-Me ne iarria 'mbracci' a nenna bella.  
-Me ne vurria zucare lu sanguillo ,  
-Comme 'na vespa l' uva muscarella.  
-Cielo ! quant' è doce lu sanguillo :  
-Nu' me ne partarria pe' 'n aterno.  
-Dint' a 'stu luogo ge ne stanno mille :  
-Tu sol' a l' uocchie mie si' la chiù bella.
+Vurrì’ addeventare nu muschillo,  
+Me ne iarria ’mbracci’ a nenna bella.  
+Me ne vurria zucare lu sanguillo,  
+Comme ’na vespa l’ uva muscarella.  
+Cielo! quant’ è doce lu sanguillo:  
+Nu’ me ne partarria pe’ ’n aterno.  
+Dint’ a ’stu luogo ge ne stanno mille:  
+Tu sol’ a l’ uocchie mie si’ la chiù bella.
 
 *Vorrei diventare un bel moschillo  
 per librarmi in braccio alla mia bella.  

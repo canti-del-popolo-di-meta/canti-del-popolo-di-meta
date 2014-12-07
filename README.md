@@ -1117,21 +1117,21 @@ per me non mancherà la buona sera.*
 
 # 53
 
-Sera ge iette e lu marito g' era ,  
-Ge la faciette la mala nuttata :  
-Ie ge mettiette sott' a la lettera ;  
-Comm' a lu ragno ieva pe' la casa.  
-Ricette lu marit' a la mugliera :  
-Ched' è tanto rummore pe' la casa?  
-Ruorme , marito mio , te venga bene :  
-Chess' è la iatta che sempe ge trase.
+Sera ge iette e lu marito g’ era,  
+Ge la faciette la mala nuttata:  
+Me ge mettiette sott’ a la lettera;  
+Comm’ a lu ragno ieva pe’ la casa.  
+Ricette lu marit’ a la mugliera:  
+Ched’ è tanto rummore pe’ la casa?  
+Ruorme, marito mio, te venga bene:  
+Chess’ è la iatta che sempe ge trase.
 
-*Sera ci andai, ci trovai il marito  
-e me la feci la mala nottata!  
-Mi ci nascosi sotto alla lettiera;  
-come un ragno me ne andavo per casa.  
-Disse il marito alla su’ mogliera  
-perché tanto rumore per la casa?  
+*Di sera ci andai, trovai il marito  
+e me la feci una mala nottata!  
+Mi nascosi per bene sotto al letto:
+come un ragno strisciavo per casa.  
+Disse il marito alla su’ mogliera:  
+Perché tanto rumore per la casa?  
 — Dormi, marito mio, ti venga bene:  
 quest’è la gatta che sempre ci trase.*
 

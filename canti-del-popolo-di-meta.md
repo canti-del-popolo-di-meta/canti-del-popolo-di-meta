@@ -640,22 +640,22 @@ smarrisce ogni gusto e ogni piacere.*
 
 # 31
 
-Lu spasso de lu ventre è lu ppane ,  
-Lu spasso de lu vino so' i prummune ,  
-Lu spasso de lu lèper' è la tana ,  
-Lu spasso de li sierpe so' i ceppune ,  
-Lu spasso de li maste so' i sculare ,  
-Lu spasso de li libre so' i rutture.  
-Si vuò' sapere lu meglio spassare :  
-Quanno me spasso nu poco cu' buie.
+Lu spasso de lu ventre è lu ppane,  
+Lu spasso de lu vino so’ i prummune,  
+Lu spasso de lu lèper’ è la tana,  
+Lu spasso de li sierpe so’ i ceppune,  
+Lu spasso de li maste so’ i sculare,  
+Lu spasso de li libre so’ i rutture.  
+Si vuò’ sapere lu meglio spassare:  
+Quanno me spasso nu poco cu’ buie.
 
 *Il piacere del ventre: il pane.  
-Il piacere del vino: i polmoni.  
+Il piacere del vino: la gola.  
 Il piacere della lepre: la tana.  
 Il piacere delle serpi: i cepponi.  
 Il piacere dei maestri: i scolari.  
 Il piacere dei libri: i dottori.  
-Sei vuoi sapere il meglio piacere,  
+Sei vuoi sapere il miglior piacere:  
 quando mi prendo piacere con voi.*
 
 

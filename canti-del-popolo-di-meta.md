@@ -2,15 +2,6 @@ Canti del popolo di Meta, tradotti da Roberto Reale
 ===
 
 
-Edizione originale in  
-NAPOLI  
-Enrico Detken &mdash; Editore  
-Piazza del Plebiscito  
-1879
-
-
-DEDICA DEL TRADUTTORE
----------------------
 *A Laura Celentano  
 di Meta  
 per la quale imparammo  
@@ -19,7 +10,7 @@ quanto di disumano in Grecia*
 
 
 CANZUNE
--------
+---
 
 # 1
 

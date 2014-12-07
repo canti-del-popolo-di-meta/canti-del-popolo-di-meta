@@ -77,17 +77,17 @@ troppa folla ci trovi a quel convento.*
 
 # 4
 
-Aizo l' uocchie 'ncielo e vevo 'na stella.  
-Potènzia d'amore! quanto si' bella!  
-Chiamm' a Ros' e risponne 'Ngiolella :  
-Dimme, figliola, qua' te pare bella ?  
-'A quanno ca ge vavo appier' a chella :  
-Me ge vo' fà' murì' la cana bella.  
-Chella se pò chiammà' la vera stella.  
-Chella che porta 'mpietto di' ruselle.
+Aizo l’ uocchie ’ncielo e vevo ’na stella.  
+Potènzia d’amore! quanto si’ bella!  
+Chiamm’ a Ros’ e risponne ’Ngiolella:  
+Dimme, figliola, qua’ te pare bella?  
+’A quanno ca ge vavo appier’ a chella:  
+Me ge vo’ fà’ murì’ la cana bella.  
+Chella se pò chiammà’ la vera stella.  
+Chella che porta ’mpietto di’ ruselle.
 
-*Alzo gli occhi al cielo e vedo ‘na stella:  
-potentia d’amore — quanto si’ bella!  
+*Alzo gli occhi al cielo e vedo una stella:  
+potenza d’amore — quanto sei bella!  
 Chiamo a Rosa e risponde Angiolella.  
 Dimmi, figliola, qual ti pare bella?  
 Da quando che mi vado appresso a quella  

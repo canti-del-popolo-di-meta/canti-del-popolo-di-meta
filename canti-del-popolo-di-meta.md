@@ -8,8 +8,6 @@ Enrico Detken &mdash; Editore
 Piazza del Plebiscito  
 1879
 
-*Traduzioni di Roberto Reale*
-
 
 DEDICA DEL TRADUTTORE
 ---------------------

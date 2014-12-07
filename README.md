@@ -1054,14 +1054,14 @@ che lo strazi l’invidia.*
 
 # 50
 
-Palazziello de fierro ben guarnuto ,  
-Vicino nun ge ponn' 'e ccannunate.  
+Palazziello de fierro ben guarnuto,  
+Vicino nun ge ponn’ ’e ccannunate.  
 Ge lu vurria fare nu sternuto.  
-'Nterra lu palazziell' è sgarrupato.  
-La gente da dinto chiàmmano aiuto :  
-Chi è lu giuveniello tant' armato?  
-Facite festa , che l' aggio vinciuto  
-'Sta nenna cu' seciento 'nnammurate.
+’Nterra lu palazziell’ è sgarrupato.  
+La gente da dinto chiàmmano aiuto:  
+Chi è lu giuveniello tant’ armato?  
+Facite festa, che l’ aggio vinciuto  
+’Sta nenna cu’ seciento ’nnammurate.
 
 *Palazzo amato, di ferro, ben guarnito,  
 che non ci posson nulla cannonate.  

@@ -251,7 +251,7 @@ chiamo amici e parenti e non ne trovo.*
 
 Ch’ addore de garuòfene che sento!  
 ’Mpiett’ a nennella mia ge n’ è ’na schianta.  
-Chiste nun zo’ garuòfene né niente,  
+Chiste nun zo’ garuòfene nè niente,  
 È ’u sciat’ ’i nenna mia ch’ addora tanto.  
 Si quaccheruno me la tene mente,    
 Ge lu faccio pigliare l’ uoglio santo.  

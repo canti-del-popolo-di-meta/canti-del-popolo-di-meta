@@ -116,23 +116,23 @@ colei che porta in petto du’ roselle.*
 
 # 5
 
-A l' acqu' a l' acqua de li ffuntanelle ,  
-A do' ge vanno li ddonn' a lavare ,  
-Là me la voglio scègliere la meglia ,  
-E semp' appiero la voglio purtare.  
-Tutte me diciarranno : Quant' è bella!  
-A do' l' he' fatta 'sta caccia riale?  
-&mdash; L' aggio fatt' a li pporte de l'Avella ,  
-A do' la neve nun ze spegna maie.
+A l’ acqu’ a l’ acqua de li ffuntanelle,  
+A do’ ge vanno li ddonn' a lavare,  
+Là me la voglio scègliere la meglia,  
+E semp’ appiero la voglio purtare.  
+Tutte me diciarranno : Quant’ è bella!  
+A do’ l’ he’ fatta ’sta caccia riale?  
+— L’ aggio fatt’ a li pporte de l’ Avella ,  
+A do’ la neve nun ze spegna maie.
 
-*All’acqua all’acqua delle fontanelle  
+*All’acqua, all’acqua delle fontanelle  
 dove ci vanno le donne a lavare  
-me ne voglio scegliere la meglio  
+mi voglio scegliere la meglio  
 e sempre con me la voglio portare.  
 Tutti mi diranno: quanto è bella!  
 Dove l’hai fatta questa caccia reale?  
 — L’ho fatta alle porte dell’Avella  
-dove la neve non si spegne mai.*
+dove la neve non si consuma mai.*
 
 
 # 6

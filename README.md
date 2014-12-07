@@ -476,17 +476,17 @@ e con la spada mi passasse parte a parte...
 
 # 23
 
-I' g' era peccerillo de dui' anne.  
-Mamma me disse : Nun amare donne ,  
-I' la 'ntenniett' a nzino a li vint' anne ,  
-A li vintuno po' amaie di' ronne.  
-Ge n' amaie una ch' era 'na tiranna ;  
-L' ata me fice pèrdere lu suonno.  
-Avesso 'ntiso chella cara mamma ,  
+I’ g’ era peccerillo de dui’ anne.  
+Mamma me disse: Nun amare donne,  
+I’ la ’ntenniett' a nzino a li vint’ anne,  
+A li vintuno po’ amaie di’ ronne.  
+Ge n’ amaie una ch’ era ’na tiranna;  
+L’ ata me fice pèrdere lu suonno.  
+Avesso ’ntiso chella cara mamma,  
 Nun gi avarria perzo lu mio suonno.
 
 *Io ero un fantolino di due anni  
-e mamma me lo disse: «non amare donne».  
+e mamma me lo disse: Non amare donne.  
 Fino ai vent’anni la volli ubbidire  
 e poi ai ventuno volli amar due donne.  
 E la prima che amai era una tiranna  

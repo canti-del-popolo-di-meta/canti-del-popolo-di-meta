@@ -581,12 +581,12 @@ me ne vorrei morir di contentezza.*
 
 # 28
 
-Iunne capille miei , iunne capille ,  
+Iunne capille miei, iunne capille,  
 Pure quanno cammine parite bella.  
-Facite muri' l' amant' a mill' a mille ,  
-Po' li vai' a sanà' cu' st' uocchie belle.  
-Dint' a 'stu palazzo ge ne stanno mille ;  
-Sulo nennella mia g' è la chiù bella.
+Facite muri’ l’ amant’ a mill’ a mille,  
+Po’ li vai’ a sanà’ cu’ st’ uocchie belle.  
+Dint’ a ’stu palazzo ge ne stanno mille;  
+Sulo nennella mia g’ è la chiù bella.
 
 *Biondi capelli miei, biondi capelli,  
 solo se camminate siete bella.  

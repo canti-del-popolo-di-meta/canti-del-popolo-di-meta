@@ -1217,7 +1217,7 @@ Pigliala bruna e generosa,
 ma che sia delicata alla cintura.  
 Così se devi farle in dono una sottana  
 risparmi fodera e seta e cucitura.  
-E se vuoi farle poi un'abbracciatella:  
+E se vuoi farle poi un’abbracciatella:  
 come abbracciassi un mazzo di fiori!*
 
 

@@ -329,20 +329,20 @@ perché non dici che io ti ho lasciato?*
 
 # 16
 
-Fenestelluzza tutta rentagliata ,  
-Comme la fronna de lu gesummino ,  
-La nott' apert' e lu iuorno serrata ,  
-Lu fai' apposta pe' dispietto mio.  
-Fenesta, si t' avess' a 'n' atu luoco ,  
+Fenestelluzza tutta rentagliata,  
+Comme la fronna de lu gesummino,  
+La nott’ apert’ e lu iuorno serrata,  
+Lu fai’ apposta pe’ dispietto mio.  
+Fenesta, si t’ avess’ a ’n’ atu luoco,  
 Centemìlia piezze te farria.  
-Fenesta, te puozz' àrdere de fuoco ,  
-Pecchè ge tiene 'nchius' a nenna mia.
+Fenesta, te puozz’ àrdere de fuoco,  
+Pecchè ge tiene ’nchius’ a nenna mia.
 
 *Finestrella mia, intarsiata tutta  
-come fronda di gelsomino.  
-La notte stai aperta e il giorno serrata:  
+come fronda di gelsomino,  
+la notte stai aperta e il giorno serrata:  
 lo fai apposta per tormento mio.  
-Finestra, se io ti avessi in altro luogo  
+Finestra, se ti avessi in altro luogo  
 in centomila schegge ti farei.  
 Finestra, che tu possa ardere nel fuoco  
 perché ci tieni chiusa a nenna mia.*

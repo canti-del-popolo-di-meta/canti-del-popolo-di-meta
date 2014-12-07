@@ -1075,14 +1075,14 @@ la nenna mia su seicento innamorati.*
 
 # 51
 
-Rusella, che nascist' a lu risierto ,  
-Maie pe' me aracquata ge foste.  
-Nu' me fa ire pe' lu munno spierto ,  
-Comm' a la nave che ge va a lu puorto.  
-La nave , quanno perde lu trinchetto ,  
+Rusella, che nascist’ a lu risierto,  
+Maie pe’ me aracquata ge foste.  
+Nu’ me fa ire pe’ lu munno spierto,  
+Comm’ a la nave che ge va a lu puorto.  
+La nave, quanno perde lu trinchetto,  
 Subetamente va truvanno puorto.  
-I' a li stràzie tuoie nu' sto suggetto :  
-Si sto 'mbassa fertura , nun zo' muorto!
+I’ a li stràzie tuoie nu’ sto suggetto:  
+Si sto ’mbassa fertura, nun zo’ muorto!
 
 *Rosella che nascesti nel deserto,  
 mai da me irrorata tu fosti.  
@@ -1090,8 +1090,8 @@ Non farmi andare per il mondo sperso
 come la nave che va cercando porto.  
 Alla nave se perde il trinchetto  
 altro non resta che cercarsi un porto.  
-Io agli strazi tuoi io non sto soggetto:  
-sto con la nera sorte, ma non son morto.*
+Agli strazi tuoi io non sto soggetto:  
+sto con la nera sorte, e non son morto.*
 
 
 # 52

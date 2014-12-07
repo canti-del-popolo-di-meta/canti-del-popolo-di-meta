@@ -1349,13 +1349,13 @@ con voi mi lasciaria fino a domani.*
 
 # 64
 
-Vì' che faciette dommèneca matina ;  
-Me ne iett' a mangiar' a Posetano ;  
-Me mangiale nu puorco e 'na gallina ,  
-Nu pucuriello cu' tutta la lana ;  
-De maccarune nn spurtiello chino ,  
-De palatelle na 'nfurnata sana.  
-Doppo 'stu ventre mio nun era chino ,  
+Vì’ che faciette dommèneca matina;  
+Me ne iett’ a mangiar’ a Posetano;  
+Me mangiale nu puorco e ’na gallina,  
+Nu pucuriello cu’ tutta la lana;  
+De maccarune nn spurtiello chino,  
+De palatelle na ’nfurnata sana.  
+Doppo ’stu ventre mio nun era chino,  
 Menava tuocco comm' a 'na campana.
 
 *Lo sai che ho fatto domenica mattina?  

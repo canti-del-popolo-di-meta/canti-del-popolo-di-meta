@@ -867,14 +867,14 @@ muoio contento e vado in paradiso!*
 
 # 42
 
-Nenna che stai' affacciat' a 'sta fenesta,  
-Famme 'na 'ràzia e nun te ne trasire.  
-Càlame nu capillo da 'sta trezza ,  
-Mòllal' abbascio ca voglio saglire.  
-Quanno so' arrivat' a 'sta fenesta ,  
-Me piglie 'mbraccia e me puort' a dormire ;  
-Quanno simm' arrivat' int' a lu lietto ,  
-Mannai' a i vische de chi vo' durmire!
+Nenna che stai’ affacciat’ a ’sta fenesta,  
+Famme ’na ’ràzia e nun te ne trasire.  
+Càlame nu capillo da ’sta trezza,  
+Mòllal’ abbascio ca voglio saglire.  
+Quanno so’ arrivat’ a ’sta fenesta,  
+Me piglie ’mbraccia e me puort’ a dormire;  
+Quanno simm’ arrivat’ int’ a lu lietto,  
+Mannai’ a i vische de chi vo’ durmire!
 
 *Nenna, che t’affacci  
 da questa finestra:  

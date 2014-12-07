@@ -246,20 +246,20 @@ tutta di fuoco mi sento incendiare.*
 
 # 11
 
-Càrcere fatt' a làmmi' e nun a trave ,  
-I' mescheniello dinto me ge trovo.  
-Càrcere fatta pe' l' uòmmene brave ,  
-Ge vanno dint' e pèrdeno li pprove.  
-Vene lu carceriere li cchiave,  
-E serr' 'a porta cu' lecchiett' e chiuove.  
-Misero me , si carcerato vavo ,  
-Chiamm' amic' e parient' e nu' ne trovo!
+Càrcere fatt’ a làmmi’ e nun a trave,  
+I’ mescheniello dinto me ge trovo.  
+Càrcere fatta pe’ l’ uòmmene brave ,  
+Ge vanno dint’ e pèrdeno li pprove.  
+Vene lu carceriere cu’ li cchiave,  
+E serr’ ’a porta cu’ lecchiett’ e chiuove.  
+Misero me, si carcerato vavo,  
+Chiamm’ amic’ e parient’ e nu’ ne trovo!
 
 *Carcere fatto a volta e non a trave  
 io meschinello dentro mi ci trovo.  
-Carcere che spezza gli uomini valenti:  
+Carcere che piega gli uomini valenti:  
 ci entrano e ci lasciano la tempra.  
-Viene il carceriere con le chiavi  
+Viene il carceriere con le chiavi,  
 assedia la porta di spranghe e di chiodi.  
 Misero me, se carcerato vado;  
 chiamo amici e parenti e non ne trovo.*

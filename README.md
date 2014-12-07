@@ -724,23 +724,23 @@ ché l’uccello non vola senza penne.*
 
 # 35
 
-Me voglio fare 'na scuppett' a miccia ,  
-Ge voglio ire quatto iuorn' a caccia.  
-Sott' a 'na ripa truvaie nu riccio ,  
-Le mengo quatto bott' e nu' lu faccio.  
-Subetamente ge cagnaie lu miccio ,  
+Me voglio fare ’na scuppett’ a miccia,  
+Ge voglio ire quatto iuorn’ a caccia.  
+Sott’ a ’na ripa truvaie nu riccio,  
+Le mengo quatto bott’ e nu’ lu faccio.  
+Subetamente ge cagnaie lu miccio,  
 La scuppetta me fice catenaccio.  
-I' nu' chiagno ch' aggio perdut' 'o riccio :  
-Chiagno nennella mia ca nun z' affaccia.
+I’ nu’ chiagno ch’ aggio perdut’ ’o riccio:  
+Chiagno nennella mia ca nun z’ affaccia.
 
-*Mi voglio fare una schioppétta a miccia:  
+*Mi voglio fare uno schioppétto a miccia:  
 ci voglio andare quattro giorni a caccia.  
 Sotto a una ripa ci trovai un riccio:  
 quattro botte gli meno e non lo faccio.  
 E subito subito ci cambio la miccia,  
-ma la schioppétta mi fa catenaccio.  
+ma lo schioppétto mi fa catenaccio.  
 Non piango ché ho perduto il riccio:  
-piango a nennella mia ché non s'affaccia.*
+piango a nennella mia che non s’affaccia.*
 
 
 # 36

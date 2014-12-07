@@ -392,14 +392,14 @@ quanti cefali ci vanno nella nassa.*
 
 # 19
 
-Figliola , te petriene ca si' bella :  
-Nisciuna de 'sti luoche arresommiglie.  
-Te mettarria 'ncopp' a 'na rotella,  
-Tutta chiena de pòrev' e de palle.  
-Tiene la vocca de la parruccella ,  
+Figliola, te petriene ca si’ bella:  
+Nisciuna de ’sti luoche arresommiglie.  
+Te mettarria ’ncopp’ a ’na rotella,  
+Tutta chiena de pòrev’ e de palle.  
+Tiene la vocca de la parruccella,  
 Tiene lu naso de lu pappavallo.  
-Si' scartellata comm' a bicchiarella  
-Si' tutta struppïat' e sempe parle!
+Si’ scartellata comm’ a bicchiarella  
+Si’ tutta struppïat’ e sempe parle!
 
 *Figliola, ti lusinghi d’esser bella...  
 che in beltà nessuna ti è compagna.  

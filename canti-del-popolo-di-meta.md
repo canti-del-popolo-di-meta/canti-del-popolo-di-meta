@@ -312,17 +312,17 @@ stare con nenna mia la notte e il giorno.*
 
 # 15
 
-Faccia de nucepièrzeco sciuruto ,  
-Pare che la lïata t' ha seccato ,  
-Me vien' appiero comm' a nu speruto ,  
-Comme nun ge stèssero chiù 'nnammurate.  
-Vaie dicenno che nu' m' he' vuluto ,  
-Pecchè nu' dice che t' aggio lassato?
+Faccia de nucepièrzeco sciuruto,  
+Pare che la lïata t’ ha seccato,  
+Me vien’ appiero comm’ a nu speruto,  
+Comme nun ge stèssero chiù ’nnammurate.  
+Vaie dicenno che nu’ m’ he’ vuluto,  
+Pecchè nu’ dice che t’ aggio lassato?
 
 *Faccia di noce persica sfiorita:  
 pare che la gelata t’ha seccato!  
 Mi vieni dietro come un disperato  
-come se non ci fossero più a ‘sto mondo innamorate.  
+come se non ci fossero più al mondo innamorate.  
 Racconti in giro che non m’hai voluta:  
 perché non dici che io ti ho lasciato?*
 

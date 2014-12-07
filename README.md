@@ -808,19 +808,19 @@ voglio più bene a voi che a un altro amante.*
 
 # 39
 
-'Na nenna bella quanno se marita ,  
-Se crede ca lu pàlli' ha pigliato.  
-Quatto iuorne ch' è stata c' 'u marito  
-Deventa comm' a scròccua spennata :  
-E po' se vota 'nfacci' a lu marito :  
-Uh nu' m' avesse maie maretata!  
-Meglio m' esse restata vecchia zita ,  
-Nun patarria 'sti ppene che pate.
+’Na nenna bella quanno se marita,  
+Se crede ca lu pàlli’ ha pigliato.  
+Quatto iuorne ch’ è stata c’ ’u marito  
+Deventa comm’ a scròccua spennata:  
+E po’ se vota ’nfacci’ a lu marito:  
+Uh nu’ m’ avesse maie maretata!  
+Meglio m’ esse restata vecchia zita,  
+Nun patarria ’sti ppene che pate.
 
 *La bella nenna quando si marita  
 si pregia d’aver tolto un gran tesoro.  
-Ma un par giorni ch’è stata a marito  
-ed eccotela chioccia spennacchiata!  
+Ma passati presto gli sponsali   
+eccotela chioccia spennacchiata!  
 Poi si rigira in faccia al marito:  
 che non mi fossi giammai maritata!  
 Meglio assai restare vecchia zita:  

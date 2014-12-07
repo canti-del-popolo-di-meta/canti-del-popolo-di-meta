@@ -1433,22 +1433,22 @@ Io le rispondo con parole accorte:
 
 # 68
 
-Vurria fare comme fa la quaglia ,  
-'Nterra s' apos' e li guste se piglia.  
-Ge va lu cacciator' a fà' la caccia ,  
-E po' dice a lu cane : Pigliatilla.  
-Vene lu cane e nu' porta la quaglia :  
+Vurria fare comme fa la quaglia,  
+’Nterra s’ apos’ e li guste se piglia.  
+Ge va lu cacciator’ a fà’ la caccia,  
+E po’ dice a lu cane: Pigliatilla.  
+Vene lu cane e nu’ porta la quaglia:  
 Lu cacciatore còllera se piglia.  
-Nun ge serve che faie lu saglia saglia ,  
-Quanto chiù 'ncoppa vaie chiù butte piglie.
+Nun ge serve che faie lu saglia saglia,  
+Quanto chiù ’ncoppa vaie chiù butte piglie.
 
 *Potessi fare come fa la quaglia:  
-si posa al suolo e si piglia i suoi gusti.  
+si posa al suolo e i suoi gusti si piglia.  
 Il cacciatore ci va a farle la caccia  
-e dice al cane: — Tu prendila, forza!  
+e dice al cane: Tu prendila, forza!  
 Torna il cane al padrone, ma... senza quaglia:  
 e il cacciatore collera si piglia!  
-Non serve far tutto questo sagli sagli:  
+Non serve far tutto questo sali sali:  
 quanto più tu t’innalzi, più botte pigli.*
 
 

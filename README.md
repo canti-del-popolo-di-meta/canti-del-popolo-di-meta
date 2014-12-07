@@ -518,14 +518,14 @@ piango la nenna mia che mo’ mi lascia.*
 
 # 25
 
-Iett' a piscar' a nu pìcculu mare ,  
-Credenno ch' era sulu piscatore.  
-Là ge truvaie tanta marenare :  
-Nu' gi abbastava lu mare maggiore.  
-Vogli' abbannunare lu piscare ,  
-Nun voglio mangià' pesce cu' sudore :  
-Nun voglio che se dice oggi o dimane :  
-Pàssero viecchio 'ncappato 'ncaiola.
+Iett’ a piscar’ a nu pìcculu mare,  
+Credenno ch’ era sulu piscatore.  
+Là ge truvaie tanta marenare:  
+Nu’ gi abbastava lu mare maggiore.  
+Vogli’ abbannunare lu piscare,  
+Nun voglio mangià’ pesce cu’ sudore:  
+Nun voglio che se dice oggi o dimane:  
+Pàssero viecchio ’ncappato ’ncaiola.
 
 *Andai a pescare al più piccolo mare  
 credendo ch’ero il solo pescatore.  
@@ -533,8 +533,8 @@ Là ci trovai mille e mille marinai
 che non bastava il mare maggiore.  
 Io voglio abbandonarlo il mio mestiere,  
 non voglio mangiar pesce con sudore.  
-Non voglio che si dica, oggi o domani,  
-«passero vecchio in gabbia caduto».*
+Non voglio che si dica, oggi o domani:  
+Passero vecchio in gabbia caduto.*
 
 
 # 26

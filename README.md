@@ -915,31 +915,31 @@ non vuol lasciarci proprio niente!*
 
 # 44
 
-Nu iuorno me 'mmarcaie cu' nu turrese ,  
-Credenno d' arrecchire la mia casa.  
-Tanto ch' era nòbel' e curtese ,  
+Nu iuorno me ’mmarcaie cu’ nu turrese,  
+Credenno d’ arrecchire la mia casa.  
+Tanto ch’ era nòbel’ e curtese,  
 Si era ronna ge deva nu vaso.  
-A Torre me facea lu pizz' a riso  
-E 'n Zardegna la còppua 'ncapa me 'ncasa.  
-Nun voglio navecare chiù turrise ;  
-Chiuttosto vogl' i' a fare lu vastaso :  
-Ge voglio prïà' Dio e santa Rosa:  
-Me fàceno turnà' priest' 'u paese.  
-Si 'stu viaggio durava 'n atu mese ,  
-Manco 'i ppelle ge purtav' â casa.
+A Torre me facea lu pizz’ a riso  
+E ’n Zardegna la còppua ’ncapa me ’ncasa.  
+Nun voglio navecare chiù turrise;  
+Chiuttosto vogl’ i’ a fare lu vastaso:  
+Ge voglio prïà’ Dio e santa Rosa:  
+Me fàceno turnà’ priest’ ’u paese.  
+Si ’stu viaggio durava ’n atu mese,  
+Manco ’i ppelle ge purtav’ â casa.
 
-*Mi ci imbarcai un dì con un Torrese,  
+*Io mi imbarcai un dì con un Torrese,  
 credendo di arricchire la mia casa.  
 Lui era bello e tanto nobile e cortese  
-che s'era donna non glie lo negavo un bacio.  
+che se era donna non glie lo negavo un bacio.  
 A Torre mi faceva il bel sembiante  
 e in Sardegna poi mi fa servir da mozzo.  
 Chi ci naviga più con i Torresi!  
 Preferisco fare lo scaricatore al porto.  
-E vo' pregare Dio e santa Rosa  
+E vo’ pregare Dio e santa Rosa  
 che mi lascino tornar presto al paese:  
-ché se l'ingaggio mi durava un altro mese  
-neanche la pelle ci riportavo a casa.*
+ché se l’ingaggio mi durava un altro mese  
+neanche la pelle riportavo a casa.*
 
 
 # 45

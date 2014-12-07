@@ -366,7 +366,7 @@ per turarla trenta rotoli di pelle,
 di stoppa ne consumi dieci balle  
 e di pece non ti basta un bastimento.  
 Ma se tu la vuoi sanare questa falla  
-d'uopo è una botta del mio gran martello!*
+d’uopo è una botta del mio gran martello!*
 
 
 # 18

@@ -497,18 +497,18 @@ Non ci avrei perso il bene del mio sonno.*
 
 # 24
 
-Iett' a la chianca pe' m' abbuscà' 'n uosso ,  
-Pe' me ge fare 'na menesta 'rassa ;  
-Ge truvaie nu cane tanto 'ruosso ,  
-Me corre 'ncuollo comm' a Satanasso.  
-Iette chiù 'nnante e ge truvaie nu fuosso ,  
-E cu' lu pede ve iette da vasso.  
-Nu' chiagno ca so' ghiut' int' a lu fuosso ;  
+Iett’ a la chianca pe’ m’ abbuscà’ ’n uosso,  
+Pe’ me ge fare ’na menesta ’rassa;  
+Ge truvaie nu cane tanto ’ruosso,  
+Me corre ’ncuollo comm’a Satanasso.  
+Iette chiù ’nnante e ge truvaie nu fuosso,  
+E cu’ lu pede ve iette da vasso.  
+Nu’ chiagno ca so’ ghiut’ int’ a lu fuosso;  
 Chiagno nennella mia ca mo me lassa.
 
 *Andai al macello a procurarmi un osso,  
 che ne potessi far minestra grassa.  
-Vi c’era un cane — giuro — assai grosso:  
+Ci stava un cane — giuro — assai grosso:  
 mi salta addosso come un satanasso.  
 Vado più avanti, ci incontrai un fosso:  
 io spingo il piede e mi trovai da basso.  

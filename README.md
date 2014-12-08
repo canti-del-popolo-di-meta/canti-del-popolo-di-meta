@@ -14,7 +14,7 @@ CANZUNE
 
 # 1
 
-’A bella mia se chiamma Matalena  
+’A bella mia se chiamma Matalena,  
 M’ ha fatto peniäre ’n anno sano,  
 Cu’ na mana me chiamm’ e dice: viene;  
 Cu ’n’ àuta po’ da me se n’ alluntana.  

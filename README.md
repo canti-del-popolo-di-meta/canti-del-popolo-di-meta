@@ -1454,20 +1454,20 @@ quanto più tu t’innalzi, più botte pigli.*
 
 # 69
 
-Zi' munacella cu' 'stu manto pinto ,  
-Vaie dicenno ca te tu vuò' fà' santa ,  
-Mo ca tu si' arrivato a l' anno vinte :  
-Voglio lu maretiello , chist' è lu manto.  
-Me voglio fà 'na scala tutto vinche ,  
-Po' voglio scalïare 'stu cummento ,  
-Lu voglio scalïar 'a for' e dinto :  
-A do' è zi' munacella, ca n' 'a sento?
+Zi’ munacella cu’ ’stu manto pinto,  
+Vaie dicenno ca te tu vuò’ fà’ santa,  
+Mo ca tu si’ arrivato a l’ anno vinte:  
+Voglio lu maretiello, chist’ è lu manto.  
+Me voglio fà ’na scala tutto vinche,  
+Po’ voglio scalïare ’stu cummento,  
+Lu voglio scalïar ’a for’ e dinto:  
+A do’ è zi’ munacella, ca n’ ’a sento?
 
-*Zi' monacella mia, con questo manto pinto  
+*Zia monacella mia, con questo manto pinto  
 tu dici a tutti che vuoi far la santa!  
-E poi di anni ce n'hai all'improvviso venti:  
-— Voglio il maritiello, tenetevi 'sto manto.  
-Io vo' farmi una scala di rami leggeri:  
-lo voglio scalar per bene 'sto convento,  
+E poi di anni quanti n’hai? Già venti?  
+— Voglio il maritiello, tenetevi il manto.  
+Io vo’ farmi una scala di rami leggeri:  
+lo voglio scalar per bene ’sto convento,  
 lo voglio scalare da fuori e da dentro.  
-Dov'è zi' monacella mia, ché non la sento?*
+Dov’è zi' monacella mia, ché non la sento?*

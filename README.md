@@ -1463,11 +1463,11 @@ Po’ voglio scalïare ’stu cummento,
 Lu voglio scalïar ’a for’ e dinto:  
 A do’ è zi’ munacella, ca n’ ’a sento?
 
-*Zia monacella mia, con questo manto pinto  
+*Zi’ monacella mia, con questo manto pinto  
 tu dici a tutti che vuoi far la santa!  
-E poi di anni quanti n’hai? Già venti?  
+E poi di anni quanti ne hai? Già venti?  
 — Voglio il maritiello, tenetevi il manto.  
-Io vo’ farmi una scala di rami leggeri:  
-lo voglio scalar per bene ’sto convento,  
+Io voglio farmi una scala di rami leggeri:  
+lo voglio scalare bene ’sto convento,  
 lo voglio scalare da fuori e da dentro.  
-Dov’è zi' monacella mia, ché non la sento?*
+Dov’è zi’ monacella mia, ché non la sento?*

@@ -718,7 +718,7 @@ E tuo marito è brutto e tu sei bella:
 su, vattelo a cambiare giù al canneto.  
 Nel canneto ci stanno le canne,  
 sulle galere gli alberi e le antenne:  
-se t’hai da maritare, fatti il corredo:  
+se t’hai da maritare, fatti il corredo,  
 ché l’uccello non vola senza penne.*
 
 

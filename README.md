@@ -1128,7 +1128,7 @@ Chess’ è la iatta che sempe ge trase.
 
 *Di sera ci andai, trovai il marito  
 e me la feci una mala nottata!  
-Mi nascosi per bene sotto al letto:
+Mi nascosi per bene sotto al letto:  
 come un ragno strisciavo per casa.  
 Disse il marito alla su’ mogliera:  
 Perché tanto rumore per la casa?  

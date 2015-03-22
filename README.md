@@ -1445,7 +1445,7 @@ Quanto chiù ’ncoppa vaie chiù butte piglie.
 *Potessi fare come fa la quaglia:  
 si posa al suolo e i suoi gusti si piglia.  
 Il cacciatore ci va a farle la caccia  
-e dice al cane: Tu prendila, forza!  
+e dice al cane: — Prendila, forza!  
 Torna il cane al padrone, ma... senza quaglia:  
 e il cacciatore collera si piglia!  
 Non serve far tutto questo sali sali:  

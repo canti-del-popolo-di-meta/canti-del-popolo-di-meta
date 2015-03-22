@@ -69,7 +69,7 @@ Troppa folla ge truov’ a lu cunvento.
 pure alla chiesa vai, assiduamente.  
 La coroncina, neh, che porti avanti,  
 tu ce la porti a inganno della gente.  
-A me tu m’hai ingannato, a me povero amante:  
+A me tu m’hai ingannato, povero amante:  
 così ti possano ingannare i tuoi parenti.  
 Ti dico questo, a te: d’ora in avanti  
 troppa folla ci trovi a quel convento.*

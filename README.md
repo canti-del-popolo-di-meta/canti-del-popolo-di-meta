@@ -1147,7 +1147,7 @@ Sta attiento ’un me scarpise ’sti mellune.
 I’ cu’ la scusa de li mmulignane,  
 Cuglieva nucepèrzech’ e mellune.
 
-*Di sera passai nel ventre di un vico:  
+*Una sera passai nel ventre di un vico:  
 vedo quest’albero colmo di frutti.  
 Stendo le mani, lo scuoto, ne cadono  
 pesche più grandi di meloni!  

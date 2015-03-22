@@ -1383,7 +1383,7 @@ Quanno m’ he’ ’itto che me tuorn’ âmare.
 fare una siepe impervia alla tua porta.  
 E quando tu usciresti ogni mattina  
 io addosso a te mi ci vorrei avvinghiare.  
-Tu mi diresti: Lasciami, restìna,  
+Tu mi diresti: — Lasciami, restìna,  
 la messa è uscita e non mi fai arrivare.  
 — Tanto ti lascio a te, nennella mia,  
 quando m’hai detto che mi torni a amare.*

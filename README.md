@@ -1403,7 +1403,7 @@ Tu sol’ a l’ uocchie mie si’ la chiù bella.
 *Vorrei diventare un bel moschillo  
 per librarmi in braccio alla mia bella.  
 Me ne vorrei centellinare il sangue  
-come una vespa con l’uva moscatella!  
+come una vespa l’uva moscatella!  
 Ma quanto è buono questo miele! Cielo,  
 non me ne strapperei fino in aeternum.  
 In questo luogo ce ne stanno mille:  

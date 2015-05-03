@@ -286,7 +286,7 @@ un’altra alla piana di Vico
 un’altra ancora sopra Massaquano  
 un’altra sta sopra Santo Vito  
 e un’altra me la tengo qui vicino:  
-a questa confido le pene mie d’amore.*
+a lei confido le pene mie d’amore.*
 
 
 # 14

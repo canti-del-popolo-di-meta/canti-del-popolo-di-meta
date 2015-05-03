@@ -840,8 +840,8 @@ I’ ge la porc’ a Surrient’ a sanare.
 Sorrento più mi giova di vantare.  
 A Sorrento c’è l’aria gentile;  
 chi sta malato là si può sanare.  
-Se tanto sta malata la mia bella  
-a Sorrento la porto a rifiorire.*
+Se sta malata tanto la mia bella  
+me la porto a Sorrento a rifiorire.*
 
 
 # 41

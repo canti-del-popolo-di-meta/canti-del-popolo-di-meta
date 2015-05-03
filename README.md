@@ -889,7 +889,7 @@ alla tua finestra
 prendimi in braccio  
 e portami a dormire.  
 Però quando saremo nel tuo letto  
-sia dannato chi ci vuol dormire!*
+sia maledetto chi ci vuol dormire!*
 
 
 # 43

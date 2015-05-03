@@ -195,13 +195,13 @@ Me ne tirate cu’ la calamita.
 
 *Da quest’altana, bella, vi mostrate:  
 i biondi capellucci vi sciogliete.  
-Poi li lavate a una conchetta d’acqua  
+Poi a una conchetta d’acqua li lavate  
 e biondi più che l’oro ve li fate.  
 Quando ve li avvolgete alla spadina  
-più bianca e vermiglietta voi vi fate.  
+più bianca e vermiglietta diventate.  
 Poi voltate le spallucce al sole  
 e del sole i raggi catturate.  
-Quando alla finestrella v’affacciate  
+Quando alla finestrella vi affacciate  
 me ne tirate con la calamita.*
 
 

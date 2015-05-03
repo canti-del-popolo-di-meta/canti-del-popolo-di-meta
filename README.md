@@ -1338,13 +1338,13 @@ Si mamma toia me volesse bene,
 Cu’ buie me lassarria fin’ a dimane.
 
 *Vi mando centomila buone sere,  
-ve ce le mando alla napoletana!  
+e ve le mando alla napoletana!  
 Tu scendi e metti l’olio alle candele:  
 ché ci vogliamo spassare oggi e domani.  
 Ti venisse sonno, per caso? E se ti viene,  
 come ti viene così lo fai passare.  
-Se mamma vostra poi mi volesse bene  
-con voi mi lasciaria fino a domani.*
+Se mamma vostra poi mi volesse bene,  
+con te mi lascerebbe... oggi e domani!*
 
 
 # 64

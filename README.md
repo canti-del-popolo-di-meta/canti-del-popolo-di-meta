@@ -796,11 +796,11 @@ Chillo d’ argient’ è lu pròpri’ amante.
 Ma si pe’ sciorta se càgnen’ i viente,  
 Voglio chiù ben’ a buie ch’ a ’n at’ amante.
 
-*Muso d’argento mio, musetto d'argento,  
+*Muso d’argento mio, musetto d’argento,  
 sei una bambina e già tieni due amanti.  
 Il primo è d’oro e il secondo d’argento.  
 Ma tu dimmelo, nenna: a chi vuoi bene?  
-— Io quello d’oro non lo stimo niente,  
+— Io a quello d’oro non lo stimo niente,  
 quello d’argento solo è il vero amante.  
 E se per sorte si cambieranno i venti  
 voglio più bene a voi che a un altro amante.*

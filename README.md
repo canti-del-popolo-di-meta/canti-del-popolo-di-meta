@@ -1039,14 +1039,14 @@ I’ pe’ dispietto me gi ’o mecc’ a lato:
 Chi nun gi ’o pò vedè’ che schiatt’ e crepa.
 
 *O mamma, mamma!  
-Io Francischiello voglio.  
-Io Francischiello voglio  
-e Francischiello mi piglio.  
+Io a Francischiello voglio.  
+A Francischiello voglio  
+e e Francischiello mi piglio.  
 E quando siamo all’altare  
-a dire: Sì, voglio!.  
+a dire: «Sì, voglio!»,  
 o non ci prenderanno forse per gemelli?  
 Lui è caruccetto e io delicatella:  
-siamo tessuti con la stessa seta.  
+siamo tessuti d'un sol fil di seta.  
 Io per dispetto me lo tengo a fianco  
 e chi non ce lo può vedere,  
 che lo strazi l’invidia.*

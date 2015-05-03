@@ -1278,9 +1278,9 @@ Saccio l’ ammore comme s’ ha da fare.
 Ti stavo dietro e ti porgevo il grano:  
 facevo covoncini e te li davo,  
 poi ti rubavo un pizzico alla mano.  
-E lei si volta e: Povera me!  
+E lei si volta e: — Povera me!  
 Non ne facciamo indovinar la gente.  
-Io le risposi: Amor non ha paura.  
+Io le risposi: — Amor non ha paura.  
 Io so l’amore come s’ha da fare.*
 
 

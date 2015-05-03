@@ -382,9 +382,9 @@ Quanta cièfere piglio int’ a ’sta nassa.
 
 *Figliola, e appènditici a ’sta ginestra!  
 Al tempo che t’amavo io ero pazzo.  
-Màmmeta parla d’imbastire parentela:  
+Tua madre parla d’imbastire parentela:  
 tu non sei buona neppure a far da serva.  
-Se non sai di creanza io te ne imparo:  
+Se non sai di creanza io te ne insegno:  
 meglio che parli poco o tu ne buschi!  
 Non prende un calesse tante botte  
 quanti cefali ci vanno nella nassa.*

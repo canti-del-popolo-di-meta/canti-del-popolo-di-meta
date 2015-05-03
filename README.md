@@ -906,7 +906,7 @@ A l’ ùtemo volea fà’ la surrasa.
 *E mi chiamò un giorno una Massese,  
 che volassi in un salto alla sua casa!  
 Io mi lanciai di carriera tesa  
-e trovo lei, la porta aperta, e: Trase.  
+e trovo lei, la porta aperta, e: — Trase.  
 E poi mi accoglie col desco imbandito:  
 un coltelluccio, il pane ed il cacio.  
 Ma sapeste alla fine la Massese: nel piatto  

@@ -25,12 +25,12 @@ Si l’ haie prummis’ a ’n ato, nu’ mancare.
 
 *La bella mia si chiama Maddalena;  
 un anno intero m’ha fatto penare.  
-Con una mano mi fa cenno e dice: vieni!  
+Con una mano mi fa cenno e dice: — Vieni!  
 e poi con l’altra mi tiene lontano.  
 Basta con i capricci: cos’hai in testa?  
 Il tuo cuore dallo a chi glie l’hai promesso.  
 E se l’hai promesso a me, tienici fede;  
-e se l’hai promesso a un altro, non mancare.*
+se l’hai promesso a un altro, non mancare.*
 
 
 # 2

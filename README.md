@@ -1212,7 +1212,7 @@ Comm’ abbracciasse nu mazzo de sciure.
 
 *Sposarti devi?  
 E allora ascolta: pigliatela bella,  
-però non troppo ché poi ti fa paura.  
+però non troppo. Ché poi ti fa paura.  
 Pigliala bruna e generosa,  
 ma che sia delicata alla cintura.  
 Così se devi farle in dono una sottana  

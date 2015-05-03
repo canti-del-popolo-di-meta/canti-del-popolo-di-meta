@@ -1041,7 +1041,7 @@ Chi nun gi ’o pò vedè’ che schiatt’ e crepa.
 *O mamma, mamma!  
 Io a Francischiello voglio.  
 A Francischiello voglio  
-e e Francischiello mi piglio.  
+e a Francischiello mi piglio.  
 E quando siamo all’altare  
 a dire: «Sì, voglio!»,  
 o non ci prenderanno forse per gemelli?  

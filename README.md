@@ -486,12 +486,12 @@ Avesso ’ntiso chella cara mamma,
 Nun gi avarria perzo lu mio suonno.
 
 *Io ero un fantolino di due anni  
-e mamma me lo disse: Non amare donne.  
+e mamma me lo disse: — Non amare donne.  
 Fino ai vent’anni la volli ubbidire  
 e poi ai ventuno volli amar due donne.  
-E la prima che amai era una tiranna  
-e la seconda mi ci fece perdere il sonno.  
-Le avessi dato retta alla mia mamma!  
+E la prima che amai era una tiranna,  
+la seconda mi ci fece perdere il sonno.  
+Avessi dato retta alla mia mamma!  
 Non ci avrei perso il bene del mio sonno.*
 
 

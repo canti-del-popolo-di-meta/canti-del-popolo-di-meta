@@ -304,7 +304,7 @@ De stà’ cu’ nenna mia nott’ e ghiuorno.
 non si fosse mai per me levato giorno!  
 Alla chiesa andai, per portar la palma:  
 mi vidi almeno cento sbirri attorno.  
-Gli dissi: Non ho fatto danno,  
+Gli dissi: — Non ho fatto danno,  
 non ho ucciso nessuno a ’ste contrade!  
 Da Napoli è venuta la condanna:  
 stare con nenna mia la notte e il giorno.*

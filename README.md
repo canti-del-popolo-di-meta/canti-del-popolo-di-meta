@@ -939,7 +939,7 @@ Preferisco fare lo scaricatore al porto.
 E vo’ pregare Dio e santa Rosa  
 che mi lascino tornar presto al paese:  
 ché se l’ingaggio mi durava un altro mese  
-neanche la pelle riportavo a casa.*
+manco la pelle riportavo a casa.*
 
 
 # 45

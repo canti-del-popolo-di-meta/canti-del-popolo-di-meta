@@ -1254,7 +1254,7 @@ Tu te ne vaie cu’ figlieta vasata;
 I’ me ne vaco cuntento e felice.
 
 *Sono venuto per parlarti chiaro.  
-Vuoi darmela tua figlia? Che ne pensi?  
+Vuoi darmela tua figlia? Che decidi?  
 Dove la trovo me l’abbraccio e bacio;  
 poi il danno fatto — è inteso — te lo pago.  
 Parliamo franco, non tergiversiamo.  

@@ -469,9 +469,9 @@ Ma che ne vuole ’sta gente da me?
 Vogliono che dei miei panni io me ne spogli,  
 ché non posso fare l’amore in eterno...  
 Ma io, venisse pure la maestà di Spagna  
-e mi dicesse: Amore, non amare donne;  
+e mi dicesse: — Amore, non amare donne,  
 e con la spada mi passasse parte a parte...  
-— Io non rinnego nenna mia per altre donne.*
+Io non rinnego nenna mia per altre donne.*
 
 
 # 23

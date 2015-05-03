@@ -152,8 +152,8 @@ Spisse va vance e pòrtece chiù amore.
 *La prima volta che mi confessai  
 mi confessai da un santo predicatore.  
 La prima cosa che mi domandò,  
-mi disse: Figliolo, fai all’amore?  
-Io gli risposi: Padre, e che ne sai?  
+mi disse: — Figliolo, fai all’amore?  
+Io gli risposi: — Padre, e che ne sai?  
 — Io conosco le tue intenzioni.  
 Una penitenza te la voglio dare:  
 va’ da lei spesso e portale più amore.*

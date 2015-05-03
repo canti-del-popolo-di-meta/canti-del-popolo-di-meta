@@ -980,7 +980,7 @@ Dicevo paternostri e misereri
 come al solito mio io soglio fare.  
 Scappa la lampada e se ne svelle il lume:  
 e io che stavo sotto l’ebbi da pagare.  
-Vedete quant’è grande la sfortuna mia:  
+Vedete quant’è grande la fortuna mia:  
 voglio far bene, finisco a fare male!*
 
 

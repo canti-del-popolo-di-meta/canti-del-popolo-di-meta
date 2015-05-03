@@ -1175,7 +1175,7 @@ ma per scrupolo mio me ne scansai.
 Con te poi fui più cortese ancora:  
 ti eri scoperta e io ti ricoprii.  
 Di una cosa soltanto ci rimasi male:  
-col fuoco acceso io non mi scaldai.*
+il fuoco era acceso e io non mi scaldai.*
 
 
 # 56

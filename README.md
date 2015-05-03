@@ -510,7 +510,7 @@ Chiagno nennella mia ca mo me lassa.
 che ne potessi far minestra grassa.  
 Ci stava un cane — giuro — assai grosso:  
 mi salta addosso come un satanasso.  
-Vado più avanti, ci incontrai un fosso:  
+Vado più avanti, ci incontro un fosso:  
 io spingo il piede e mi trovai da basso.  
 Non piango che son caduto dentro al fosso:  
 piango la nenna mia che mo’ mi lascia.*

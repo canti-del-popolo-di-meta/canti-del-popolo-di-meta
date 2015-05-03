@@ -320,7 +320,7 @@ Vaie dicenno che nu’ m’ he’ vuluto,
 Pecchè nu’ dice che t’ aggio lassato?
 
 *Faccia di noce persica sfiorita:  
-pare che la gelata t’ha seccato!  
+pare che la gelata ti ha seccato!  
 Mi vieni dietro come un disperato  
 come se non ci fossero più al mondo innamorate.  
 Racconti in giro che non m’hai voluta:  

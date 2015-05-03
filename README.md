@@ -999,10 +999,10 @@ Lu lietto è fatto, si te vuò’ cuccare.
 Mi voglio vestire da pio cappuccino  
 e alla tua porta poi vengo a bussare:  
 — Fammi la carità, figliola mia.  
-E lei mi dice: Non so che darti...  
+E lei mi dice: — Non ho che dare.
 Mi son finiti il pane ed il vino.  
 C’è il letto fatto, se ti vuoi coricare.  
-— Io altro non cercavo, nenna mia!*
+— Io non cercavo altro, nenna mia!*
 
 
 # 48

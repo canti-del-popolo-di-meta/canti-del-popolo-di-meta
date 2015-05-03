@@ -88,12 +88,12 @@ Chella che porta ’mpietto di’ ruselle.
 
 *Alzo gli occhi al cielo e vedo una stella:  
 potenza d’amore — quanto sei bella!  
-Chiamo a Rosa e risponde Angiolella.  
-Dimmi, figliola, qual ti pare bella?  
-Da quando che mi vado appresso a quella  
-mi ci vuol far morir, la cana bella.  
-Colei si può nomar la vera stella:  
-colei che porta in petto du’ roselle.*
+Chiamo Rosa e risponde Angiolella.  
+— Dimmi, figliola, qual ti pare bella?  
+Da quando le vado dietro, lei  
+mi ci vuol far morire, infame e bella.  
+Colei si può chiamar la vera stella:  
+colei che porta in petto due roselle.*
 
 
 # 5
@@ -111,8 +111,8 @@ A do’ la neve nun ze spegna maie.
 dove ci vanno le donne a lavare  
 mi voglio scegliere la meglio  
 e sempre con me la voglio portare.  
-Tutti mi diranno: quanto è bella!  
-Dove l’hai fatta questa caccia reale?  
+Tutti mi diranno: — Quanto è bella!  
+Dove l’hai fatta ’sta caccia reale?  
 — L’ho fatta alle porte dell’Avella  
 dove la neve non si consuma mai.*
 

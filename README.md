@@ -782,7 +782,7 @@ e acqua con i vermi ne ho bevuta.
 Mamma e padre m’hanno abbandonato;  
 i meglio amici miei m’hanno tradito.  
 Se il cielo me ne scampa da soldato  
-voglio far pace con lei che m’ha tradito.*
+vo’ far pace con lei che m’ha tradito.*
 
 
 # 38

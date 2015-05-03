@@ -534,7 +534,7 @@ che non bastava il mare maggiore.
 Io voglio abbandonarlo il mio mestiere,  
 non voglio mangiar pesce con sudore.  
 Non voglio che si dica, oggi o domani:  
-Passero vecchio in gabbia caduto.*
+«passero vecchio in gabbia caduto».*
 
 
 # 26

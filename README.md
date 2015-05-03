@@ -1091,7 +1091,7 @@ come la nave che va cercando porto.
 Alla nave se perde il trinchetto  
 altro non resta che cercarsi un porto.  
 Agli strazi tuoi io non sto soggetto:  
-sto con la nera sorte, e non son morto.*
+sto con la nera sorte, ma non son morto.*
 
 
 # 52

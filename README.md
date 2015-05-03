@@ -1019,7 +1019,7 @@ Si nun ge sta ’na nennella valente.
 *Palazzo nuovo non si può fabbricare  
 se non s’inizia dalle fondamenta.  
 Chi saprebbe arare la terra  
-se vengono meno i sette alimenti?  
+se vengon meno i sette alimenti?  
 Alla chiesa, poi, come predicare  
 se manca il gran concorso della gente?  
 In letto fresco non ti ci coricare:  

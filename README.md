@@ -653,7 +653,7 @@ Quanno me spasso nu poco cu’ buie.
 Il piacere del vino: la gola.  
 Il piacere della lepre: la tana.  
 Il piacere delle serpi: i cepponi.  
-Il piacere dei maestri: i scolari.  
+Il piacere dei maestri: gli scolari.  
 Il piacere dei libri: i dottori.  
 Sei vuoi sapere il miglior piacere:  
 quando mi prendo piacere con voi.*

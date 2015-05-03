@@ -671,7 +671,7 @@ Si qua' ghiuorno me tenta la fortura
 Scasso li pporte e la veng’ a truvare.
 
 *Mamma, che di tua figlia hai paura,  
-voglio vedere se te la sai guardare.  
+voglio vedere se la sai guardare.  
 Disloca macigni, fabbrica le mura,  
 davanti alla porta ergile una torre.  
 Serrala poi con sette serrature  

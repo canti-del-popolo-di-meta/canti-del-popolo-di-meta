@@ -258,8 +258,8 @@ Ge lu faccio pigliare l’ uoglio santo.
 E si màmmeta toia n’ è cuntenta ,  
 Tu munacell’ e i’ mònaco santo.
 
-*Che odore di garofani che sento:  
-in petto a nenna mia ce n’è una schianta!  
+*Che odore di garofani che sento...!  
+Ce ne sta un mazzo in petto a nenna mia!  
 Questi non son garofani, né altro:  
 è respiro di nenna mia che odora tanto!  
 Se qualcuno me la guarda con la voglia  

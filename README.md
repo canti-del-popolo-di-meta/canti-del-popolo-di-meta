@@ -1126,14 +1126,14 @@ Ched’ è tanto rummore pe’ la casa?
 Ruorme, marito mio, te venga bene:  
 Chess’ è la iatta che sempe ge trase.
 
-*Di sera ci andai, trovai il marito  
+*Di sera ci andai, ci trovai il marito  
 e me la feci una mala nottata!  
 Mi nascosi per bene sotto al letto:  
 come un ragno strisciavo per casa.  
-Disse il marito alla su’ mogliera:  
-Perché tanto rumore per la casa?  
+Disse il marito a chi gli dorme al fianco: 
+— Perché tanto rumore per la casa?  
 — Dormi, marito mio, ti venga bene:  
-quest’è la gatta che sempre ci trase.*
+questa è la gatta che sempre s’infila.*
 
 
 # 54

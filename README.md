@@ -1130,7 +1130,7 @@ Chess’ è la iatta che sempe ge trase.
 e me la feci una mala nottata!  
 Mi nascosi per bene sotto al letto:  
 come un ragno strisciavo per casa.  
-Disse il marito a chi gli dorme al fianco: 
+Disse il marito a chi gli dorme al fianco:  
 — Perché tanto rumore per la casa?  
 — Dormi, marito mio, ti venga bene:  
 questa è la gatta che sempre s’infila.*

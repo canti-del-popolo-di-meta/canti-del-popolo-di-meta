@@ -818,7 +818,7 @@ Nun patarria ’sti ppene che pate.
 
 *La bella nenna quando si marita  
 si pregia d’aver tolto un gran tesoro.  
-Ma passati presto gli sponsali   
+Ma passati presto gli sponsali  
 eccotela chioccia spennacchiata!  
 Poi si rigira in faccia al marito:  
 che non mi fossi giammai maritata!  

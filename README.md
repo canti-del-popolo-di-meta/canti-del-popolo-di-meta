@@ -1,7 +1,6 @@
 Canti del popolo di Meta, tradotti da Roberto Reale
 ===
 
-
 *A Laura Celentano  
 di Meta  
 per la quale imparammo  
@@ -1471,3 +1470,9 @@ Io voglio farmi una scala di rami leggeri:
 lo voglio scalare bene ’sto convento,  
 lo voglio scalare da fuori e da dentro.  
 Dov’è zi’ monacella mia, ché non la sento?*
+
+
+NOTA
+---
+
+<a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/80x15.png" /></a><br />This work is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Attribution-ShareAlike 4.0 International License</a>.

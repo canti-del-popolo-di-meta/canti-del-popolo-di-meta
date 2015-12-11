@@ -943,7 +943,7 @@ manco la pelle riportavo a casa.*
 
 # 45
 
-Nu iuorno me ’mparai caudararo’,  
+Nu iuorno me ’mparai caudararo,  
 E chest’ è la megli’ arte che me trovo.  
 Comme ne iette pe’ dint’ a Lustrano,  
 Li ccaudare vecchie li faccio nove.  

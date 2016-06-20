@@ -1,7 +1,7 @@
 Canti del popolo di Meta, tradotti da Roberto Reale
 ===
 
-*A Laura Celentano  
+*a Laura Celentano  
 di Meta  
 per la quale imparammo  
 quanto di greca umanità ci fosse in noi  

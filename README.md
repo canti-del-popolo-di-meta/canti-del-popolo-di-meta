@@ -171,11 +171,11 @@ Mo che la bella mi’ ha cagnat’ amore.
 
 *Albero pargoletto ti piantai  
 ti innaffiai con il mio sudore.  
-Il vento viene e ne strappa un ramo  
+Il vento viene me ne strappa un ramo  
 la fronda verde mutò di colore.  
 Il frutto dolce mi si fece amaro:  
 dov’è perduto quel dolce sapore?  
-Vieni qui, morte, trovaci riparo,  
+Vieni qui, morte, trovaci rimedio,  
 tanto la bella mia ha cambiato amore.*
 
 

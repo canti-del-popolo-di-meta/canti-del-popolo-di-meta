@@ -49,7 +49,7 @@ Tu che sei bella che vuoi star tranquilla?
 Queste bellezze a chi le vuoi lasciare?  
 Dai, lasciale a chi ti vuole bene:  
 e io verbigrazia non ti voglio male.  
-— Ma più presto le lascio alla negra terra  
+— Ma più presto le lascio a questa negra terra  
 per non lasciarle a te, cuore di cane.*
 
 

@@ -961,7 +961,7 @@ Ecco che me ne andavo per Lustrano:
 Viene una donna col tegame in mano:  
 — Sie’ mastro mio, conciamela buona!  
 Io ne vorrei sgranare a più non posso,  
-ché quanti più ne cerco, di buchi, più ne trovo.*
+ché quanti più ne cerco, buchi, più ne trovo.*
 
 
 # 46

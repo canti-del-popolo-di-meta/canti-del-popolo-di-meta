@@ -980,7 +980,7 @@ a san Francesco, e tra me e me pregavo.
 Dicevo paternostri e misereri  
 come al solito mio io soglio fare.  
 Scappa la lampada e se ne svelle il lume:  
-e io che stavo sotto l’ebbi da pagare.  
+e io che stavo sotto l’ebbi a pagare.  
 Vedete quant’è grande la fortuna mia:  
 voglio far bene, finisco a fare male!*
 
@@ -996,7 +996,7 @@ Aggio fenuto lu ppan’ e lu vino,
 Lu lietto è fatto, si te vuò’ cuccare.  
 — Chesto ieva truvanno, nenna mia.
 
-*Ma come faccio per poterti parlare?  
+*Ma come faccio per poter parlarti?  
 Mi voglio vestire da pio cappuccino  
 e alla tua porta poi vengo a bussare:  
 — Fammi la carità, figliola mia.  

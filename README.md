@@ -260,7 +260,7 @@ Tu munacell’ e i’ mònaco santo.
 *Che odore di garofani che sento...!  
 Ce ne sta un mazzo in petto a nenna mia!  
 Questi non son garofani, né altro:  
-è respiro di nenna mia che odora tanto!  
+è fiato di nenna mia che odora tanto!  
 Se qualcuno me la guarda con la voglia  
 glie lo faccio pigliare l’olio santo!  
 E se mamma tua di noi non è contenta  

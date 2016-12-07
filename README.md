@@ -801,9 +801,9 @@ Voglio chiù ben’ a buie ch’ a ’n at’ amante.
 sei una bambina e già tieni due amanti.  
 Il primo è d’oro e il secondo d’argento.  
 Ma tu dimmelo, nenna: a chi vuoi bene?  
-— Io a quello d’oro non lo stimo niente,  
+— Io quello d’oro non lo stimo niente,  
 quello d’argento solo è il vero amante.  
-E se per sorte si cambieranno i venti  
+E se per sorte si mutano i venti  
 voglio più bene a voi che a un altro amante.*
 
 

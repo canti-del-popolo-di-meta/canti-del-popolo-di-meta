@@ -576,7 +576,7 @@ Io vi saluto a voi, cuscini e materassi
 ove riposa la vostra bellezza.  
 Del tuo corpetto ne vorrei un nastro,  
 solo un capello delle bionde trecce!  
-Voglia il cielo t’avessi tra le braccia:  
+Volesse il cielo t’abbia tra le braccia:  
 me ne vorrei morir di contentezza.*
 
 

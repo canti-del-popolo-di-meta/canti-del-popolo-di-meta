@@ -17,19 +17,21 @@ CANZUNE
 M’ ha fatto peniäre ’n anno sano,  
 Cu’ na mana me chiamm’ e dice: viene;  
 Cu ’n’ àuta po’ da me se n’ alluntana.  
+
 Lèrat’ 'a fantasia ca ’ncapa tiene,  
 Duna ’stu cor’ a chi prummiso l’ haie.  
 Si l’ haie prummis’ a me, tu tiene tiene;  
 Si l’ haie prummis’ a ’n ato, nu’ mancare.
 
-*La bella mia si chiama Maddalena;  
-un anno intero m’ha fatto penare.  
-Con una mano fa cenno e dice: — Vieni!  
-e poi con l’altra mi tiene lontano.  
+*Maddalena si chiama la mia bella,  
+e m’ha tenuto in pena tutto un anno.  
+Con una mano chiama, dice: — Vieni!  
+con l’altra mano mi spinge lontano.  
+
 Basta con i capricci: cos’hai in testa?  
-Il tuo cuore dallo a chi glie l’hai promesso.  
-E se l’hai promesso a me, tienici fede;  
-se l’hai promesso a un altro, non mancare.*
+Da’ questo cuore a chi glie l’hai promesso!  
+E se l’hai promesso a me, perché tentenni?  
+E se l’hai promesso a un altro, non mancare.*
 
 
 # 2

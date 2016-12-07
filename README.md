@@ -1456,7 +1456,7 @@ quanto più tu t’innalzi, più botte pigli.*
 Zi’ munacella cu’ ’stu manto pinto,  
 Vaie dicenno ca te tu vuò’ fà’ santa,  
 Mo ca tu si’ arrivato a l’ anno vinte:  
-Voglio lu maretiello, chist’ è lu manto.  
+— Voglio lu maretiello, chist’ è lu manto.  
 Me voglio fà ’na scala tutto vinche,  
 Po’ voglio scalïare ’stu cummento,  
 Lu voglio scalïar ’a for’ e dinto:  

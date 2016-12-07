@@ -24,7 +24,7 @@ Si l’ haie prummis’ a ’n ato, nu’ mancare.
 
 *La bella mia si chiama Maddalena;  
 un anno intero m’ha fatto penare.  
-Con una mano mi fa cenno e dice: — Vieni!  
+Con una mano fa cenno e dice: — Vieni!  
 e poi con l’altra mi tiene lontano.  
 Basta con i capricci: cos’hai in testa?  
 Il tuo cuore dallo a chi glie l’hai promesso.  

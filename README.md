@@ -53,8 +53,8 @@ Queste bellezze a chi le vuoi lasciare?*
 
 *Dai, lasciale a chi ti vuole bene:  
 e io verbigrazia non ti voglio male.  
-— Io più presto le lascio alla negra terra  
-che non lasciarle a te, cuore di cane.*
+— Ma più presto le lascio alla negra terra  
+per non lasciarle a te, cuore di cane.*
 
 
 # 3

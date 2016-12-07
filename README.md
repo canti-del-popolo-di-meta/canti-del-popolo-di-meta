@@ -1235,8 +1235,8 @@ Comme a cumeta pare ’na vota l’ anno.
 
 *Lo vuoi saper lo spasso delle donne  
 quando il caro marito sta in viaggio?  
-Fuso e conocchia presto nascosti  
-e bocconi di lusso che si fanno!  
+Fuso e conocchia presto nascosti,  
+i bocconi di lusso che si fanno!  
 S’arricciano i capelli tutt’intorno  
 e gli vien l’uzzo di un taglio brioso!  
 Ma torna il marito e per bene le scuote:  

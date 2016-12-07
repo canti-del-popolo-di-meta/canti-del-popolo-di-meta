@@ -149,12 +149,12 @@ La penitènzi’ a te te voglio dare:
 Spisse va vance e pòrtece chiù amore.
 
 *La prima volta che mi confessai  
-mi confessai da un santo predicatore.  
+mi confessai da un san predicatore.  
 La prima cosa che mi domandò,  
 mi disse: — Figliolo, fai all’amore?  
 Io gli risposi: — Padre, e che ne sai?  
-— Io conosco le tue intenzioni.  
-Una penitenza te la voglio dare:  
+— Io le conosco le tue intenzioni.  
+E la penitenza te la voglio dare:  
 va’ da lei spesso e portale più amore.*
 
 

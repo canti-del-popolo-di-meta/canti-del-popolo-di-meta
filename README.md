@@ -381,7 +381,7 @@ Si nun parle poco abbusche ’faccia.
 Nun piglia tanta botte ’na galessa.  
 Quanta cièfere piglio int’ a ’sta nassa.
 
-*Figlia, appènditici a ’sta ginestra!  
+*Figlia, appìccatici a ’sta finestra!  
 Al tempo che t’amavo io ero pazzo.  
 Tua madre parla d’imbastir parentela:  
 tu non sei buona manco a far da serva.  

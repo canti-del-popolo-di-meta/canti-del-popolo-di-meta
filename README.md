@@ -278,12 +278,13 @@ Una la teng’ a Massa e ’n’ at’ a Crape,
 ’N’ ata me la teng’ a lu mio lato:  
 A chella conto li ppatute mie.
 
-*Chi è venuto a dirti che non tengo innamorate?  
+*Chi t’è venuto a dire  
+che non ne ho, innamorate?  
 Sette ne tengo, pronte al mio comando.  
 Una la tengo a Massa e un’altra a Capri  
 un’altra alla piana di Vico  
 un’altra ancora sopra Massaquano  
-un’altra sta sopra Santo Vito  
+un’altra sta verso Santo Vito  
 e un’altra me la tengo qui vicino:  
 a lei confido le pene mie d’amore.*
 

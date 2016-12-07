@@ -64,12 +64,12 @@ Cussì te pòzzano ingannà’ li tuoie parente.
 Chesto te dic’ a te, da oggi avante,  
 Troppa folla ge truov’ a lu cunvento.
 
-*Ho saputo che ti sei fatta santa;  
-pure alla chiesa vai, assiduamente.  
-La coroncina, neh, che porti avanti,  
-tu ce la porti a inganno della gente.  
-A me tu m’hai ingannato, povero amante:  
-così ti possano ingannare i tuoi parenti.  
+*M’hanno detto che sei fatta santa;  
+che alla chiesa ci vai assiduamente.  
+Ma la coroncina che ti porti avanti  
+tu te la porti a ingannar la gente.  
+A me già m’hai fregato, sventurato amante:  
+così ti possano fregare i tuoi parenti.  
 Ti dico questo, a te: d’ora in avanti  
 troppa folla ci trovi a quel convento.*
 

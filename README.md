@@ -932,11 +932,11 @@ Manco ’i ppelle ge purtav’ â casa.
 *Io mi imbarcai un dì con un Torrese,  
 credendo di arricchire la mia casa.  
 Lui era bello e tanto nobile e cortese  
-che se era donna non glie lo negavo un bacio.  
+che se era donna glie lo davo un bacio!  
 A Torre mi faceva il bel sembiante  
-e in Sardegna poi mi fa servir da mozzo.  
-Chi ci naviga più con i Torresi!  
-Preferisco fare lo scaricatore al porto.  
+in Sardegna poi mi fa servir da mozzo.  
+Non voglio praticare più Torresi!  
+Meglio giù al porto fatica di facchino.  
 E vo’ pregare Dio e santa Rosa  
 che mi lascino tornar presto al paese:  
 ché se l’ingaggio mi durava un altro mese  

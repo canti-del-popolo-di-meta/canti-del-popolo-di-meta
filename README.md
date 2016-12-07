@@ -714,7 +714,7 @@ Si t’ haie da maretà’, fatte li panne:
 L’ auciello nu’ bola senza penne.
 
 *Maritatella mia, maritatella,  
-chi te l’ha datto quel brutto marito?  
+chi te l’ha dato quel brutto marito?  
 E tuo marito è brutto e tu sei bella:  
 su, vattelo a cambiare giù al canneto.  
 Nel canneto ci stanno le canne,  

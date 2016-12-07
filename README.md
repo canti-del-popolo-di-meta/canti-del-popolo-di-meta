@@ -631,7 +631,7 @@ Perde li guste, li spass’ e li suone.
 
 *La tortora se perde la compagna  
 un giorno intero se ne sta intristita.  
-Poi trova l'acqua fresca, vi si bagna,  
+Poi trova l’acqua fresca, vi si bagna,  
 e se la beve tutta annuvolata.  
 Poi se ne va alla cima di un monte  
 e là si piange le disgrazie sue.  

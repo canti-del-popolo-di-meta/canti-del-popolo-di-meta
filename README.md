@@ -381,14 +381,14 @@ Si nun parle poco abbusche ’faccia.
 Nun piglia tanta botte ’na galessa.  
 Quanta cièfere piglio int’ a ’sta nassa.
 
-*Figliola, e appènditici a ’sta ginestra!  
+*Figlia, appènditici a ’sta ginestra!  
 Al tempo che t’amavo io ero pazzo.  
-Tua madre parla d’imbastire parentela:  
-tu non sei buona neppure a far da serva.  
+Tua madre parla d’imbastir parentela:  
+tu non sei buona manco a far da serva.  
 Se non sai di creanza io te ne insegno:  
 meglio che parli poco o tu ne buschi!  
-Non prende un calesse tante botte  
-quanti cefali ci vanno nella nassa.*
+Un calesse non prende tante botte  
+quanti cefali vanno nella nassa.*
 
 
 # 19

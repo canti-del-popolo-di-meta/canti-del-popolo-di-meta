@@ -108,12 +108,12 @@ A do’ la neve nun ze spegna maie.
 
 *All’acqua, all’acqua delle fontanelle  
 dove ci vanno le donne a lavare  
-mi voglio scegliere la meglio  
-e sempre con me la voglio portare.  
-Tutti mi diranno: — Quanto è bella!  
+me ne vo’ scegliere la meglio  
+e sempre con me me la voglio portare.  
+E tutti mi diranno: — Quanto è bella!  
 Dove l’hai fatta ’sta caccia reale?  
 — L’ho fatta alle porte dell’Avella  
-dove la neve non si consuma mai.*
+dove la neve non si può consumare.*
 
 
 # 6

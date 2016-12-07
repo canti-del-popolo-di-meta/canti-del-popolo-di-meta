@@ -85,8 +85,8 @@ Me ge vo’ fà’ murì’ la cana bella.
 Chella se pò chiammà’ la vera stella.  
 Chella che porta ’mpietto di’ ruselle.
 
-*Alzo gli occhi al cielo e vedo una stella:  
-potenza d’amore — quanto sei bella!  
+*Alzo gli occhi e in cielo sta una stella:  
+potenza d’amore, quanto sei bella!  
 Chiamo Rosa e risponde Angiolella.  
 — Dimmi, figliola, qual ti pare bella?  
 Da quando le vado dietro, lei  

@@ -127,7 +127,7 @@ Pe’ vedè’ ’st’ auciello a do’ s’ aposa;
 Iette pe’ dà’ nu vas’ a ’sta Teresa,  
 E '’cuollo me currett’ Agnese e Rosa.
 
-*Amavo una donna: era il suo nome Agnese.  
+*Amavo una donna: il suo nome era Agnese.  
 Ne amavo un’altra: le dicevan Rosa.  
 Un’altra ancora: si chiamava Teresa.  
 Ma... solo Teresa mi dava qualcosa.  

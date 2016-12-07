@@ -610,10 +610,10 @@ I’ ’n at’ amante tengo e tu ge schiatte.
 
 *La bella mia sta malata a letto:  
 tiene la mala pasqua che la batte.  
-S’è mangiate due galline cotte  
-s’è rosicchiate l’ossa come un gatto  
-s’è mangiati due sacchi di confetti  
-s’è prosciugate due sorgenti d’acqua.  
+S’ha mangiate due galline cotte  
+s’ha rosicchiate l’ossa come un gatto  
+s’ha mangiati due sacchi di confetti  
+s’ha prosciugate due sorgenti d’acqua.  
 Ti lusingavi di farmi dispetto:  
 io un’altra amante tengo e tu ci schiatti.*
 

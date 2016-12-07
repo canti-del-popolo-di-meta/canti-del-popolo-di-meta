@@ -26,9 +26,8 @@ Si l’ haie prummis’ a ’n ato, nu’ mancare.
 *Maddalena si chiama la mia bella,  
 e m’ha tenuto in pena tutto un anno.  
 Con una mano chiama, dice: — Vieni!  
-con l’altra mano mi spinge lontano.*
-
-*Basta con i capricci: cos’hai in testa?  
+con l’altra mano mi spinge lontano.  
+Basta con i capricci: cos’hai in testa?  
 Da’ questo cuore a chi glie l’hai promesso!  
 E se l’hai promesso a me, perché tentenni?  
 E se l’hai promesso a un altro, non mancare.*

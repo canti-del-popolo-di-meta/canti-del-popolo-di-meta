@@ -17,7 +17,6 @@ CANZUNE
 M’ ha fatto peniäre ’n anno sano,  
 Cu’ na mana me chiamm’ e dice: viene;  
 Cu ’n’ àuta po’ da me se n’ alluntana.  
-
 Lèrat’ 'a fantasia ca ’ncapa tiene,  
 Duna ’stu cor’ a chi prummiso l’ haie.  
 Si l’ haie prummis’ a me, tu tiene tiene;  

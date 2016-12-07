@@ -673,12 +673,12 @@ Scasso li pporte e la veng’ a truvare.
 
 *Mamma, che di tua figlia hai paura,  
 voglio vedere se la sai guardare.  
-Disloca macigni, fabbrica le mura,  
+Disloca macigni, fabbrica mura,  
 davanti alla porta ergile una torre.  
 Serrala poi con sette serrature  
 come una cassa piena di tesori.  
 Ma se qualche giorno mi tenta la sorte  
-io scasso le porte e la vengo a trovare.*
+scasso le porte e la vengo a trovare.*
 
 
 # 33

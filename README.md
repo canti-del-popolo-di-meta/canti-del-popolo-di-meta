@@ -451,7 +451,7 @@ quanto più porti tu più bella pari!
 Galera, se m’incappi sotto vento  
 giuro che le vele ti faccio calare.  
 — Non ho paura d’acqua né di vento:  
-tengo a nennillo mio marinaio.*
+tengo ninnillo mio marinaio.*
 
 
 # 22

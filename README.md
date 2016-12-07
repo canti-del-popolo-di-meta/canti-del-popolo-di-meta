@@ -49,9 +49,8 @@ Pe’ n’ ’i lassar’ a te, core de cane.
 *— M’hanno detto che viene la morte  
 per pigliarsi le donne più belle.  
 Tu che sei bella che vuoi star tranquilla?  
-Queste bellezze a chi le vuoi lasciare?*
-
-*Dai, lasciale a chi ti vuole bene:  
+Queste bellezze a chi le vuoi lasciare?  
+Dai, lasciale a chi ti vuole bene:  
 e io verbigrazia non ti voglio male.  
 — Ma più presto le lascio alla negra terra  
 per non lasciarle a te, cuore di cane.*

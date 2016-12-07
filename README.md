@@ -1467,7 +1467,7 @@ A do’ è zi’ munacella, ca n’ ’a sento?
 *Zi’ monacella mia, con questo manto pinto  
 tu dici a tutti che vuoi far la santa!  
 E poi di anni quanti ne hai? Già venti?  
-— Voglio il maritiello, tenetevi il manto.  
+— Voglio il maritino, tenetevi ’sto manto.  
 Io voglio farmi una scala di rami leggeri:  
 lo voglio scalare bene ’sto convento,  
 lo voglio scalare da fuori e da dentro.  

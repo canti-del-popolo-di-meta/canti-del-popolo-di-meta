@@ -322,7 +322,8 @@ Pecchè nu’ dice che t’ aggio lassato?
 *Faccia di noce persica sfiorita:  
 pare che la gelata ti ha seccato!  
 Mi vieni dietro come un disperato  
-come se non ci fossero più al mondo innamorate.  
+come non ci stessero al mondo  
+innamorate.  
 Racconti in giro che non m’hai voluta:  
 perché non dici che io ti ho lasciato?*
 

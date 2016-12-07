@@ -346,7 +346,7 @@ lo fai apposta per tormento mio.
 Finestra, se ti avessi in altro luogo  
 in centomila schegge ti farei.  
 Finestra, tu possa ardere nel fuoco  
-perché ci tieni chiusa a nenna mia.*
+perché ci tieni chiusa nenna mia.*
 
 
 # 17

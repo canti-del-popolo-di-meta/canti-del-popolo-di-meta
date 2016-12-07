@@ -592,7 +592,7 @@ Sulo nennella mia g’ è la chiù bella.
 *Biondi capelli miei, biondi capelli,  
 solo se camminate siete bella.  
 Fate morir gli amanti a mille a mille  
-e poi li sanate con quest’occhi belli.  
+poi li sanate con quest’occhi belli.  
 In questo palazzo ce ne stanno mille;  
 solo nennella mia è la più bella.*
 

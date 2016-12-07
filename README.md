@@ -339,13 +339,13 @@ Centemìlia piezze te farria.
 Fenesta, te puozz’ àrdere de fuoco,  
 Pecchè ge tiene ’nchius’ a nenna mia.
 
-*Finestrella mia, intarsiata tutta  
-come fronda di gelsomino,  
-la notte stai aperta e il giorno serrata:  
+*Finestrelluccia, tutta intarsiata  
+come la fronda del gelsomino,  
+stai aperta a notte di giorno serrata:  
 lo fai apposta per tormento mio.  
 Finestra, se ti avessi in altro luogo  
 in centomila schegge ti farei.  
-Finestra, che tu possa ardere nel fuoco  
+Finestra, tu possa ardere nel fuoco  
 perché ci tieni chiusa a nenna mia.*
 
 

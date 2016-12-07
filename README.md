@@ -1070,7 +1070,7 @@ Io ci vorrei fare appena uno sternuto
 e già il palazzotto è sgarrupato.  
 La gente dentro va chiamando aiuto:  
 — Chi è quel giovanotto tanto armato?  
-Fate festa, ché ho vinto  
+Fate festa, ché ho guadagnato  
 la nenna mia su seicento innamorati.*
 
 

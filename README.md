@@ -38,7 +38,6 @@ E se l’hai promesso a un altro, non mancare.*
 Tutte li bbelle se li vo’ pigliare.  
 Tu che si’ bella mièttete ’mpenziere:  
 Chisti bbellizz’ a chi li buò’ lassare?  
-
 Tu lassarill’ a chi te ge vo’ bene,  
 Si è pe’ me, i’ nun te voglio male.  
 — Chiù priest’ ’i lassari’ a lu turreno,  

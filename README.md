@@ -40,6 +40,7 @@ E se l’hai promesso a un altro, non mancare.*
 Tutte li bbelle se li vo’ pigliare.  
 Tu che si’ bella mièttete ’mpenziere:  
 Chisti bbellizz’ a chi li buò’ lassare?  
+
 Tu lassarill’ a chi te ge vo’ bene,  
 Si è pe’ me, i’ nun te voglio male.  
 — Chiù priest’ ’i lassari’ a lu turreno,  
@@ -47,12 +48,13 @@ Pe’ n’ ’i lassar’ a te, core de cane.
 
 *— M’hanno detto che viene la morte  
 per pigliarsi le donne più belle.  
-Tu che sei bella non puoi star tranquilla:  
-queste bellezze a chi le vuoi lasciare?  
-Lasciale, deh, a chi ti vuole bene:  
+Tu che sei bella che vuoi star tranquilla?  
+Queste bellezze a chi le vuoi lasciare?*
+
+*Dai, lasciale a chi ti vuole bene:  
 e io verbigrazia non ti voglio male.  
-— Le lascerei più tosto alla negra terra  
-per non lasciarle a te, cuore di cane.*
+— Io più presto le lascio alla negra terra  
+che non lasciarle a te, cuore di cane.*
 
 
 # 3

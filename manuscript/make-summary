@@ -1,0 +1,10 @@
+#!/bin/bash
+
+[[ -n $dir ]] || { echo "Please define \$dir." ; exit 1 ; }
+
+for file in $(ls $dir/*.md)
+do
+	c=$(tr -dc [0-9] <<<$file)
+	title=$(sed -n 3p < $file | sed -n 's/[,.:;?!]*  $//p')
+	echo "    * [$c — $title]($file)"
+done

@@ -75,7 +75,7 @@
 
 * [Canti del popolo di Piano di Sorrento](piano/README.md)
     * [2 — Sabbatu santu ’e Pascarusata](piano/002.md)
-    * [10 — Mamma, ’nu scurpione m’nha muzzecato](piano/010.md)
+    * [10 — Mamma, ’nu scurpione m’ha muzzecato](piano/010.md)
     * [43 — Si t’haje da zurà’, pigliala bella](piano/043.md)
     * [50 — Io quanno me ’nzuraje nu’ la vuleva](piano/050.md)
     * [54 — ’Nu juorno me ne jette marina, marina](piano/054.md)

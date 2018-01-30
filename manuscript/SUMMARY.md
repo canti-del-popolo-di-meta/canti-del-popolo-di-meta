@@ -1,5 +1,6 @@
 # Canti popolari della Penisola Sorrentina
 
+* [License Notice](LICENSE.md)
 * [Introduzione](README.md)
 
 * [Canti del popolo di Meta](meta/README.md)

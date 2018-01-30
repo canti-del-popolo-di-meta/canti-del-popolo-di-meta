@@ -72,12 +72,3 @@
     * [67 — Vurrei addeventare nu picciuòttuo](meta/67.md)
     * [68 — Vurria fare comme fa la quaglia](meta/68.md)
     * [69 — Zi’ munacella cu’ ’stu manto pinto](meta/69.md)
-
-* [Canti del popolo di Piano di Sorrento](piano/README.md)
-    * [2 — Sabbatu santu ’e Pascarusata](piano/002.md)
-    * [10 — Mamma, ’nu scurpione m’ha muzzecato](piano/010.md)
-    * [43 — Si t’haje da zurà’, pigliala bella](piano/043.md)
-    * [50 — Io quanno me ’nzuraje nu’ la vuleva](piano/050.md)
-    * [54 — ’Nu juorno me ne jette marina, marina](piano/054.md)
-    * [96 — All’acqua all’acqua re li Funtanelle](piano/096.md)
-    * [98 — La primma vorta ca me ’nnammuraie](piano/098.md)

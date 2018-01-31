@@ -1,6 +1,6 @@
 # Canti popolari della Penisola Sorrentina
 
-[![Canti popolari della Penisola Sorrentina](media/cover.jpg)](manuscript/SUMMARY.md)
+[![Canti popolari della Penisola Sorrentina](media/cover.jpg)](manuscript/SUMMARY.html)
 
 A selection of folk poetry from Sorrento Peninsula, with [my](https://robertoreale.me) translation (from Neapolitan into Italian) and notes. It is a work in progress.
 

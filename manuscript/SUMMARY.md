@@ -163,7 +163,7 @@
     * [87 — So' …… Vìecchio e nu‘ trovo recàpete](piano/087.md)
     * [88 — So fatto vnccchno e me cola 'o naso. P ’ )](piano/088.md)
     * [89 — So' fatto viecchio e nu' tengo remare](piano/089.md)
-    * [90 — ](piano/090.md)
+    * [90 — So’ fatto viecchio e m’è venuto ’o sfizio](piano/090.md)
     * [91 — bo' fatto viecchio e me volle 'o venterc](piano/091.md)
     * [92 — Vecchiaia cana, chiena re relure](piano/092.md)
     * [93 — Che faggio fatto, ea me puerto ’o musso? (i)](piano/093.md)

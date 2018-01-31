@@ -74,7 +74,7 @@
     * [69 — Zi’ munacella cu’ ’stu manto pinto](meta/69.md)
 
 * [Canti del popolo di Piano di Sorrento](piano/README.md)
-    * [1 — ’A bella. nennà, quanno se matita, (I)](piano/001.md)
+    * [1 — ’A bella nenna, quanno se marita](piano/001.md)
     * [2 — Sabbatu santu ’e Pascarusata](piano/002.md)
     * [3 — Rusulina andava a monte](piano/003.md)
     * [4 — 'Nce so' asciuto stanotte all'ascaruso, (1)](piano/004.md)

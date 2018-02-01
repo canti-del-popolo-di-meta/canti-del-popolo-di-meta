@@ -17,9 +17,9 @@ Please feel free to fork this repository if there are any edits you should love 
 
 ## Branches
 
-* the [master](https://github.com/robertoreale/sorrento) is the default branch
-* the [piano](https://github.com/robertoreale/sorrento/tree/piano) contains additional poems from Piano di Sorrento (to be revised and translated)
-* the [gh-pages](https://github.com/robertoreale/sorrento/tree/gh-pages) contains the landing page, which is based on the Jekyll theme [compass](https://github.com/excentris/compass) by [Eduardo Rubio](https://github.com/excentris)
+* the [master](https://github.com/robertoreale/sorrento) branch is the default branch
+* the [piano](https://github.com/robertoreale/sorrento/tree/piano) branch contains additional poems from Piano di Sorrento (to be revised and translated)
+* the [gh-pages](https://github.com/robertoreale/sorrento/tree/gh-pages) branch contains the landing page, which is based on the Jekyll theme [compass](https://github.com/excentris/compass) by [Eduardo Rubio](https://github.com/excentris)
 
 ## License notice
 

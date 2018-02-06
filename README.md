@@ -9,7 +9,7 @@ This repository contains the source code of my book _Canti popolari della Peniso
 * read the book online both [here](manuscript/SUMMARY.md) and on [GitBook](https://robertoreale.gitbooks.io/sorrento)
 * download the book in [PDF](https://www.gitbook.com/download/pdf/book/robertoreale/sorrento), [Mobi](https://www.gitbook.com/download/mobi/book/robertoreale/sorrento), or [ePub](https://www.gitbook.com/download/epub/book/robertoreale/sorrento)
 * buy the book on [Amazon](https://www.amazon.it/gp/product/B079G61WY6/) or [Kobo](https://www.kobo.com/ebook/canti-popolari-della-penisola-sorrentina)
-* review the book on [Goodreads](https://www.goodreads.com/book/show/38310952-canti-popolari-della-penisola-sorrentina">Goodreads)
+* review the book on [Goodreads](https://www.goodreads.com/book/show/38310952-canti-popolari-della-penisola-sorrentina)
 
 ## How to contribute
 
@@ -23,8 +23,6 @@ Please feel free to fork this repository if there are any edits you should love 
 
 ## License notice
 
-The book is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Attribution-ShareAlike 4.0 International License</a>.
+<a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/88x31.png" /></a><br />This work is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Attribution-ShareAlike 4.0 International License</a>.
 
-<a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/88x31.png" /></a>
-
-The [cover image](https://github.com/robertoreale/sorrento/blob/piano/media/cover.jpg) is a picture by my dearest friend Francesco Saverio Gargiulo.
+The [cover image](images/cover.jpg) is a picture by my dearest friend Francesco Saverio Gargiulo.

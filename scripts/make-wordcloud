@@ -1,0 +1,10 @@
+#!/bin/bash
+
+# requires https://github.com/amueller/word_cloud
+
+dir=$1
+template=${2:-??.md}
+stopwords=$3
+output=$4
+
+cat $dir/$template | pandoc -f markdown -t plain | wordcloud_cli.py --stopwords $stopwords --imagefile $output --background black --width 1000 --height 500

@@ -1,0 +1,8 @@
+#!/bin/bash
+
+# cf. https://unix.stackexchange.com/questions/316556/
+
+dir=$1
+template=${2:-??.md}
+
+cat $dir/$template | pandoc -f markdown -t plain | grep -oE '[[:alpha:]]+' | sort -f | uniq -ic | sort -k1,1nr

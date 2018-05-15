@@ -2,6 +2,7 @@
 
 * [License Notice](LICENSE.md)
 * [Introduzione](README.md)
+* [Bibliografia](BIBLIOGRAPHY.md)
 
 * [Canti del popolo di Meta](meta/README.md)
     * [1 — ’A bella mia se chiamma Matalena](meta/01.md)

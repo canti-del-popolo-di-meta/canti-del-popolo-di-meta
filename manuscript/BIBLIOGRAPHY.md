@@ -3,7 +3,7 @@
 ## Fonti primarie
 
 * Amalfi, Gaetano (1883). *Canti del popolo di Piano di Sorrento*. Milano, Brignola & C., https://archive.org/details/canti_del_popolo_di_piano_di_sorrento
-* Molinaro Del Chiaro, Luigi (1879). *Canti del popolo di Meta*. Napoli, Enrico Detken.
+* Molinaro Del Chiaro, Luigi (1879). *Canti del popolo di Meta*. Napoli, Enrico Detken, https://archive.org/details/canti_del_popolo_di_meta
 
 ## Altre fonti
 

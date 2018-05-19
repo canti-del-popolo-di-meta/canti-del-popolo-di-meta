@@ -91,3 +91,8 @@
     * [13 — Si’ ghiute recenne ca nu’ tenghe renare](piano/013.md)
     * [14 — Stanotte, a mezannotte, maru mene](piano/014.md)
     * [15 — Si vuò sapè stanotte ch’ho sunnato](piano/015.md)
+    * [16 — Stella lucenta mia, stella lucente](piano/016.md)
+    * [17 — Nc’esce lu sole la matina all’arba](piano/017.md)
+    * [18 — Caperemonte è lu megliu scialà’](piano/018.md)
+    * [19 — Vurrìa addeventare ’na restina](piano/019.md)
+    * [20 — N’aggio comme fà’ pe’ te parlare](piano/020.md)

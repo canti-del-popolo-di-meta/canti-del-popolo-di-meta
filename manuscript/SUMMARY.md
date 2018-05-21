@@ -96,3 +96,8 @@
     * [18 — Caperemonte è lu megliu scialà’](piano/018.md)
     * [19 — Vurrìa addeventare ’na restina](piano/019.md)
     * [20 — N’aggio comme fà’ pe’ te parlare](piano/020.md)
+    * [21 — Vurria addeventare ’nu pecciuotto](piano/021.md)
+    * [22 — Fenestà ca lucive e mo’ nu’ luce](piano/022.md)
+    * [23 — Fenesta, cu’ ’su nova gelusia](piano/023.md)
+    * [24 — ’Nu juorno me ne jette mare, mare](piano/024.md)
+    * [25 — Ogni patre tene cinquanta figlie](piano/025.md)

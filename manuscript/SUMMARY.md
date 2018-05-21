@@ -217,7 +217,7 @@
     * [139 — Sera nce jette e lu marito nc’ era](piano/139.md)
     * [140 — Preveto, levàtella ’sa suttana](piano/140.md)
     * [141 — Ah! mamma, mamma, Franceschiello voglio](piano/141.md)
-    * [142 — Sia beneritto chi fece lu murino](piano/142.md)
+    * [142 — Sia beneritto chi fece lu munno](piano/142.md)
     * [143 — Vurria fare comme fa la quaglia](piano/143.md)
     * [144 — Vurria addeventare ’nu muschillo](piano/144.md)
     * [145 — Vih! che faciette dummeneca matina](piano/145.md)

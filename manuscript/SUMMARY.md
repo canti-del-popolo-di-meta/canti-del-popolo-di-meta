@@ -109,7 +109,7 @@
     * [31 — Quann’ ’a tùrtera perde la cumpagna](piano/031.md)
     * [32 — Se ne è sciso lu sole! È fatto notte](piano/032.md)
     * [33 — Se n’è sciso lu sole e bon biaggio](piano/033.md)
-    * [34 — Fenesta vascia e patrona crurele](piano/034.md)
+    * [34 — Fenesta vascia ’e patrona crurele](piano/034.md)
     * [35 — Bella figliola, comme nu’ t’arde ’o core](piano/035.md)
     * [36 — Si vuô verè la vita re le donne](piano/036.md)
     * [37 — Vurrie sapè’ cu’ miche, che nc’avite](piano/037.md)

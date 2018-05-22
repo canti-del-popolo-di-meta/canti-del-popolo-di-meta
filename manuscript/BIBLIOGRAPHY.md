@@ -14,5 +14,6 @@
 * Capasso, Bartolommeo (1980). *La poesia popolare napoletana ed altri scritti minori*. S.l., s.n. (Sorrento, Gutenberg ’72).
 * De Simone, Roberto (1979). *Canti e tradizioni popolari in Campania*. Roma, Lato Side
 * Fasulo, Manfredi (1906). *La Penisola Sorrentina: Vico Equense, Meta, Piano, S. Agnello, Sorrento, Massa Lubrense: Istoria - usi e costumi - antichità: Ricerche*. Napoli, Gennaro Priore
+* Levi, Eugenia (1895). *Fiorita di canti tradizionali del popolo italiano, con cinquanta melodie popolari tradizionali / scelti nei vari dialetti e annotata da Eugenia Levi*. Firenze, R. Bemporad e figlio, https://archive.org/details/fioritadicantitr00levi
 * Molinaro Del Chiaro, Luigi (1880). *Canti del popolo napoletano*. Napoli, Tip. G. Argenio
 * Rivera, Annamaria (1988). *Il mago, il santo, la morte, la festa: forme religiose nella cultura popolare*. Bari, Dedalo

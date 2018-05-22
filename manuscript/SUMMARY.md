@@ -229,7 +229,7 @@
     * [151 — Me jette a cunfessà: Padre, le risse](piano/151.md)
     * [152 — Into a’ ’stu core nc’ è ’na palummella](piano/152.md)
     * [153 — Into a su luogo nu ’se nce po’ stare](piano/153.md)
-    * [154 — Quanto si’ brutto, ca puozz’esse[re] acciso](piano/154.md)
+    * [154 — Quanto si’ brutto, ca puozz’essere acciso](piano/154.md)
     * [155 — Chi vò verè’ lu paraviso apierto](piano/155.md)
     * [156 — Hai tu la bella fronte e ’o bello viso](piano/156.md)
     * [157 — So’ resoluto andarmene ’ncampagna](piano/157.md)

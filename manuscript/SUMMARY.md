@@ -209,7 +209,7 @@
     * [131 — L’immo vippeto ’o zuche re cardillo](piano/131.md)
     * [132 — Figliola, che si ’male maretata](piano/132.md)
     * [133 — ’Na nennella bella nu ’pozza maje muri’](piano/133.md)
-    * [134 — lnt’a lu ’nﬁerno nce sta ’nu tanto](piano/134.md)
+    * [134 — Int’a lu ’nfierno nce sta ’nu tauto](piano/134.md)
     * [135 — Donna gentile, tu nun ’haje paraggio](piano/135.md)
     * [136 — Zi’ munacella, cu’ ’su mantu pinto](piano/136.md)
     * [137 — Apriteme ’se feneste, ca so’ chiuse](piano/137.md)

@@ -163,7 +163,7 @@
     * [85 — Mamma, nu’ me voglio chiù maretà’](piano/085.md)
     * [86 — Me voglio maretà’, mamma nu’ bò’](piano/086.md)
     * [87 — So’ fatto viecchio e nu’ trovo recàpete](piano/087.md)
-    * [88 — So fatto vnccchno e me cola ’o naso](piano/088.md)
+    * [88 — So’ fatto viecchio e me cola ’o naso](piano/088.md)
     * [89 — So’ fatto viecchio e nu’ tengo renare](piano/089.md)
     * [90 — So’ fatto viecchio e m’è venuto ’o sfizio](piano/090.md)
     * [91 — So’ fatto viecchio e me volle ’o ventere](piano/091.md)

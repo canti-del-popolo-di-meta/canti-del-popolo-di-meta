@@ -80,7 +80,7 @@
     * [2 — Sabbatu santu ’e Pascarusata](piano/002.md)
     * [3 — Rusulina andava â monte](piano/003.md)
     * [4 — ’Nce so’ asciuto stanotte all’ascaruso](piano/004.md)
-    * [5 — Bella ﬁgliola, lu ’nfierno t’acquiste](piano/005.md)
+    * [5 — Bella figliola, lu ’nfierno t’acquiste](piano/005.md)
     * [6 — Saluta chesta chiazza ogne patrone](piano/006.md)
     * [7 — Tutto lo tiempo re la vita mia](piano/007.md)
     * [8 — Bella, chisse uocchie tuje m’hanno legato](piano/008.md)

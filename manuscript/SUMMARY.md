@@ -239,7 +239,7 @@
     * [161 — Junne capìlle mie, junne capille](piano/161.md)
     * [162 — ’Nu juorno stevo cu’ li miei penziere](piano/162.md)
     * [163 — Palazzielio, re fierro ben guarnuto](piano/163.md)
-    * [164 — .Chist’uocchie tuoje quanto so’ belli](piano/164.md)
+    * [164 — Chist’uocchie tuoje quanto so’ belli](piano/164.md)
     * [165 — Chi rice che tetella nun è bella](piano/165.md)
     * [166 — Voglio tagliare n’arbere re pepe](piano/166.md)
     * [167 — Speranza r’ ’o mio cor, catena r’oro](piano/167.md)

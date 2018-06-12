@@ -5,6 +5,10 @@
 * Amalfi, Gaetano (1883). *Canti del popolo di Piano di Sorrento*. Milano, Brignola & C., https://archive.org/details/canti_del_popolo_di_piano_di_sorrento
 * Molinaro Del Chiaro, Luigi (1879). *Canti del popolo di Meta*. Napoli, Enrico Detken, https://archive.org/details/canti_del_popolo_di_meta
 
+## Dizionari
+
+* Gusumpaur, Federico (1887). *Vocabolario botanico napoletano con l’equivalente latino ed italiano*. Napoli, L. Chiurazzi
+
 ## Altre fonti
 
 * Capasso, Bartolommeo (1980). *La poesia popolare napoletana ed altri scritti minori*. S.l., s.n. (Sorrento, Gutenberg ’72).

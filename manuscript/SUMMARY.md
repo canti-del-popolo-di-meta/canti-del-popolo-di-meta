@@ -86,3 +86,8 @@
     * [8 — Bella, chisse uocchie tuje m’hanno legato](piano/008.md)
     * [9 — Vurria, che me giuvasse lu peglià’](piano/009.md)
     * [10 — Mamma, ’nu scurpione m’ha muzzecato](piano/010.md)
+    * [11 — ’Nu juorne me ne jette sulo sulo](piano/011.md)
+    * [12 — Si’ ghiute recenne, ca nu’ tengo nammurate](piano/012.md)
+    * [13 — Si’ ghiute recenne ca nu’ tenghe renare](piano/013.md)
+    * [14 — Stanotte, a mezannotte, maru mene](piano/014.md)
+    * [15 — Si vuò sapè stanotte ch’ho sunnato](piano/015.md)

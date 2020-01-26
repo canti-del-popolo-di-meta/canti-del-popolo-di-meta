@@ -19,7 +19,6 @@ Please feel free to fork this repository if there are any edits you should love 
 
 * the [master](https://github.com/reale/sorrento) branch is the default branch
 * the [develop](https://github.com/reale/sorrento/tree/develop) branch contains additional poems from Piano di Sorrento (to be revised and translated)
-* the [gh-pages](https://github.com/reale/sorrento/tree/gh-pages) branch contains the landing page, which is based on the Jekyll theme [compass](https://github.com/excentris/compass) by [Eduardo Rubio](https://github.com/excentris)
 
 ## License notice
 

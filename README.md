@@ -6,8 +6,7 @@ This repository contains the source code of my book _Canti popolari della Peniso
 
 ## Where to find the book
 
-* read the book online both [here](manuscript/SUMMARY.md) and on [GitBook](https://reale.gitbooks.io/sorrento)
-* download the book in [PDF](https://www.gitbook.com/download/pdf/book/reale/sorrento), [Mobi](https://www.gitbook.com/download/mobi/book/reale/sorrento), or [ePub](https://www.gitbook.com/download/epub/book/reale/sorrento)
+* read the book online both on [GitBook](https://sorrento.reale.me/)
 * buy the book on [Amazon](https://www.amazon.it/gp/product/B079G61WY6/) or [Kobo](https://www.kobo.com/ebook/canti-popolari-della-penisola-sorrentina)
 * review the book on [Goodreads](https://www.goodreads.com/book/show/38310952-canti-popolari-della-penisola-sorrentina)
 

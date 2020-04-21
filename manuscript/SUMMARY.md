@@ -1,7 +1,8 @@
 # Canti popolari della Penisola Sorrentina
 
 * [License Notice](LICENSE.md)
-* [Introduzione](README.md)
+* [Prefazione](PREFACE.md)
+* [Introduzione](INTRODUCTION.md)
 * [Bibliografia](BIBLIOGRAPHY.md)
 
 * [Canti](canti/README.md)

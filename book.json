@@ -6,8 +6,8 @@
     "plugins": [],
     "root": "./manuscript",
     "structure": {
-        "readme": "README.md",
-        "summary": "SUMMARY.md"
+        "readme": "INTRODUCTION.md",
+        "summary": "README.md"
     },
     "links": {
         "sidebar": {

@@ -2,6 +2,7 @@
     "author": "Roberto Reale",
     "title": "Canti popolari della Penisola Sorrentina",
     "description": "Folk poetry from Sorrento Peninsula, with Italian translation and notes.",
+    "language": "it",
     "gitbook": ">= 3.x.x",
     "plugins": [],
     "root": "./manuscript",

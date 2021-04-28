@@ -1,5 +1,7 @@
 # Folk poetry from Sorrento Peninsula
 
+![](manuscript/cover.jpg)
+
 ## Introduction
 
 This repository contains the source code of my book _Canti popolari della Penisola Sorrentina_ (_Folk poetry from Sorrento Peninsula_), with my translation (from Neapolitan into Italian) and a few notes.

@@ -62,7 +62,7 @@
   * [54 — ’Nu juorno me ne jette marina, marina](canti/054.md)
   * [55 — Vurria addeventà’ ’nu pesce spate](canti/055.md)
   * [56 — Mamma, tutte pesce me magnarrie](canti/056.md)
-  * [57 — Bella figliola, che li sciare cuglite](canti/057.md)
+  * [57 — Bella figliola, che li sciure cuglite](canti/057.md)
   * [58 — ’Nu juorne me vutaje lu capricce](canti/058.md)
   * [59 — ’Nu juorno me ne jette a caccia](canti/059.md)
   * [60 — Int’a ’stu luogo nc’è nato ’nu lupo](canti/060.md)

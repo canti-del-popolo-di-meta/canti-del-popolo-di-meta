@@ -4,7 +4,7 @@ di Eduardo Lauritano
 
 > _“Il passato reca con sé un indice segreto che lo rinvia alla redenzione. Non sfiora forse anche noi un soffio dell’ aria che spirava attorno a quelli prima di noi? Non c’è, nelle voci cui prestiamo ascolto, un’eco di voci ora mute?”_ \(W. Benjamin\)
 >
-> _“Il cronista che enumera gli avvenimenti senza distinguere tra i piccoli e i grandi, tiene conto della verità che nulla di ciò che si è verificato va dato perduto per la storia. Certo, solo all’umanità redenta tocca interamente il suo passato. Vale a dire che solo per l’umanità redenta il passato è citabile in ognuno dei suoi momenti. Ognuno dei suoi attimi vissuti diventa una “citation à l’ordre du jour”- e questo giorno è il giorno finale_”. \(W. Benjamin\)
+> _“Il cronista che enumera gli avvenimenti senza distinguere tra i piccoli e i grandi, tiene conto della verità che nulla di ciò che si è verificato va dato perduto per la storia. Certo, solo all’umanità redenta tocca interamente il suo passato. Vale a dire che solo per l’umanità redenta il passato è citabile in ognuno dei suoi momenti. Ognuno dei suoi attimi vissuti diventa una “citation à l’ordre du jour” — e questo giorno è il giorno finale_”. \(W. Benjamin\)
 
 Questo lavoro ha due grandi meriti: il primo è che solo nel passato possiamo trovare i segni che svelano il nostro presente e le tracce di possibili futuri; il secondo merito è che nel canto popolare rintracciamo i valori fondamentali che hanno tenuto insieme la comunità che ci ha preceduto.
 

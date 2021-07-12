@@ -14,7 +14,7 @@
   * [6 — Saluta chesta chiazza ogne patrone](canti/006.md)
   * [7 — Tutto lo tiempo re la vita mia](canti/007.md)
   * [8 — Bella, chisse uocchie tuje m’hanno legato](canti/008.md)
-  * [9 — Vurria, che me giuvasse lu peglià’](canti/009.md)
+  * [9 — Vurrìa che me giuvasse lu peglià’](canti/009.md)
   * [10 — Mamma, ’nu scurpione m’ha muzzecato](canti/010.md)
   * [11 — ’Nu juorne me ne jette sulo sulo](canti/011.md)
   * [12 — Si’ ghiute recenne, ca nu’ tengo nammurate](canti/012.md)

@@ -27,7 +27,7 @@
   * [19 — Vurrìa addeventare ’na restina](canti/019.md)
   * [20 — N’aggio comme fà’ pe’ te parlare](canti/020.md)
   * [21 — Vurria addeventare ’nu pecciuotto](canti/021.md)
-  * [22 — Fenestà ca lucive e mo’ nu’ luce](canti/022.md)
+  * [22 — Fenesta ca lucive e mo’ nu’ luce](canti/022.md)
   * [23 — Fenesta, cu’ ’su nova gelusia](canti/023.md)
   * [24 — ’Nu juorno me ne jette mare, mare](canti/024.md)
   * [25 — Ogni patre tene cinquanta figlie](canti/025.md)
